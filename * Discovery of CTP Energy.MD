@@ -1,7 +1,5 @@
 # Discovery of CTP Energy
 
----
-
 Original article - first post/published August 2004
 
 (Written by Drazen Premate based on research and experiences since 1985)
