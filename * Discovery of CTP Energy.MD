@@ -58,6 +58,7 @@ What you will soon learn about in a greater detail via this Web site is not a ne
 
 I have no doubt from my own personal experience that it is through daily practice, study, repetition of experiments and application of the C-energy domain laws that we can become even greater and more active spiritual beings. This process can only enhance who we are in the physical world without really ever threatening who we were.
 
+
 Drazen E. Premate
 President, CEO & Founder
 CTP Energy Corporation
