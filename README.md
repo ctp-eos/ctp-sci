@@ -1,4 +1,4 @@
-# CTP Energy Science - Knowledge Base Launchpad
+# Welcome
 
 Welcome to the official GitHub repository for learning the basics of **CTP Energy Science (CTPSci Sciences)**. This project is the starting point for those interested in exploring a revolutionary scientific framework rooted in **higher consciousness**, **energetic systems**, and **interface principles with the C-domain**.
 
