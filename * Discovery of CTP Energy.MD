@@ -14,13 +14,13 @@ In another domain, often referred to as the spiritual domain that is not visible
 
 In 1985 when I began to have my C-domain experiences and I have started my research of it, it all got triggered by a few very simple questions I had about us as human beings and our spirituality and the *“greater invisible energy”* that Tesla talked about.
 
-I always sensed a *“greater force”* behind everything and everyone, but I could not find any good explanations about it that made sense to me. Most of what is out there in this field can be considered as religion or occult, but not as science, and I was interested in finding out more about the science of the C-domain or spiritual energy and what it is made of. Are there *“atoms” *of our spiritual energy and existence, and if so, how they relate to everything else in the universe?
+I always sensed a *“greater force”* behind everything and everyone, but I could not find any good explanations about it that made sense to me. Most of what is out there in this field can be considered as religion or occult, but not as science, and I was interested in finding out more about the science of the C-domain or spiritual energy and what it is made of. Are there *“atoms”* of our spiritual energy and existence, and if so, how they relate to everything else in the universe?
 
 I also felt if this understanding could be achieved it would then explain many other aspects and phenomena of life and universe, and it does. I also felt strongly the same knowledge should be shared with many from the very beginning of my research of CTP Energy.
 
 If we are spiritual beings, which we are, then our spirit or C-body should operate and exist in a **non-physical environment** that has its own set of **universal laws**, *which it does*. It behaves there within C-domain laws similarly as our physical body operates in the physical world under physical laws that are uniform everywhere and apply to **everyone** equally.
 
-Just as our physical body and universe is made of basic building blocks of the physical world called atoms and molecules, our C-body is also made of certain basic building blocks or units of energy that I call C-energy Units.
+Just as our physical body and universe is made of basic building blocks of the physical world called atoms and molecules, our C-body is also made of certain basic building blocks or units of energy that I call ***C-energy Units***.
 
 Just as atoms make up the minimal physical reality of the matter that exists in the physical world, the C-energy Units are basic building blocks of our spirit or C-body and all other C-energies that exist in the C-domain which then define many physical universes.
 
@@ -32,7 +32,7 @@ Just as an atom exhibits in its smallest form the characteristics of a particula
 
 These *“thoughts”* of one or more C-energy units are then translated into vibrations of our and other physical worlds (and most not visible from the frequency of our physical world) via another set of energy units that I call Translational or T-energy Units.
 
-This is what T-energy Units do and are about relative to the connection between the C-domain and P-domain. T-energy Units are *“plugged into”* the C-energy Units and translate their thought vibrations into the proper codes and frequencies which then exhibit themselves in different physical worlds including ours. T-energy Units are the printer cables of the C-world that with “proper software” connect our physical world to the C-domain and vice versa.
+This is what ***T-energy Units*** do and are about relative to the connection between the **C-domain** and **P-domain**. T-energy Units are *“plugged into”* the C-energy Units and translate their thought vibrations into the proper codes and frequencies which then exhibit themselves in different physical worlds including ours. T-energy Units are the printer cables of the C-world that with *“proper software”* connect our physical world to the C-domain and vice versa.
 
 This process of energy and information or thought transfer between the C-domain and the P-domain via T-energy Units is what I call the ***CTP Energy Cycle™***.
 
@@ -40,7 +40,7 @@ There is a big difference relative to a narrow and limited behavior of the indiv
 
 How can one describe in the physical-world sense the size and the endless diversity of the C-energy domain? Picture all possible energy levels/vibrations/frequencies or existences in the C-domain as a path more than 100 million miles long, then all known energies and vibrations of our physical world covered by the science of today would fit into a length of only a ¼ of an inch! Anything outside this ¼ of an inch on this more than hundred million-mile long path we cannot see or touch from the P-domain and thus has been virtually totally unknown to us.
 
-The CTP Energy Cycle defines the close relationship and the interdependence between the C-domain and the physical world or P-domain. A scientific understanding of the same will eventually lead to the development of a whole new usable energy source. This CTP Energy Cycle understanding will also lead to the design and use of machines and instruments that can harness the *“real engine”* of the CTP world without the use of or burning part of the energy of the physical world.
+The CTP Energy Cycle™ defines the close relationship and the interdependence between the C-domain and the physical world or P-domain. A scientific understanding of the same will eventually lead to the development of a whole new usable energy source. This CTP Energy Cycle™ understanding will also lead to the design and use of machines and instruments that can harness the *“real engine”* of the CTP world without the use of or burning part of the energy of the physical world.
 
 This CTP Energy Systems will be able to one day manipulate gravity and thus allow for space travel today only seen in science fiction movies. Also communication along C-energy Frequencies is instant – **there is no limit of speed of light** as exhibited in physical domain. No interplanetary, deep space, or interstellar space travel could ever happen if we would rely on speed of light speed only – it takes 92 minutes for one way communication to Cassini spacecraft around Saturn. And the closest star is over 4 light years away. Communication via C-domain and energies or frequencies of the same is instant.
 
