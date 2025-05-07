@@ -30,7 +30,7 @@ The C-energy units actually *“think”* to exist in the physical world (P-doma
 
 Just as an atom exhibits in its smallest form the characteristics of a particular matter in the P-domain, a C-energy unit represents in its most basic form the smallest unit of C-energy entity that can *“think”* of being something in other realms (energies/vibrations), including our own physical universe.
 
-These *“thoughts”* of one or more C-energy units are then translated into vibrations of our and other physical worlds (and most not visible from the frequency of our physical world) via another set of energy units that I call Translational or T-energy Units.
+These *“thoughts”* of one or more C-energy units are then translated into vibrations of our and other physical worlds *(and most not visible from the frequency of our physical world)* via another set of energy units that I call ***Translational*** or T-energy Units.
 
 This is what ***T-energy Units*** do and are about relative to the connection between the **C-domain** and **P-domain**. T-energy Units are *“plugged into”* the C-energy Units and translate their thought vibrations into the proper codes and frequencies which then exhibit themselves in different physical worlds including ours. T-energy Units are the printer cables of the C-world that with *“proper software”* connect our physical world to the C-domain and vice versa.
 
