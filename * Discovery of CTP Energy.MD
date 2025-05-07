@@ -24,11 +24,11 @@ Just as our physical body and universe is made of basic building blocks of the p
 
 Just as atoms make up the minimal physical reality of the matter that exists in the physical world, the C-energy Units are basic building blocks of our spirit or C-body and all other C-energies that exist in the C-domain which then define many physical universes.
 
-Just as atoms do so in the physical world, C-energy Units also behave in certain predictable and symbiotic way in the C-domain. They create groups, conglomerations or active partnerships with other C-energy Units with a simple purpose of “thinking” of being something or someone in the physical world and in other energy levels of the C-energy domain. Our spirit-soul is one of the most complex C-energy Units partnerships.
+Just as atoms do so in the physical world, C-energy Units also behave in certain predictable and symbiotic way in the C-domain. They create groups, conglomerations or active partnerships with other C-energy Units with a simple purpose of *“thinking”* of being something or someone in the physical world and in other energy levels of the C-energy domain. Our spirit-soul is one of the most complex C-energy Units partnerships.
 
 The C-energy units actually *“think”* to exist in the physical world (P-domain) and appear physical as P-Units (atoms) or as any other forms of known physical energies, P-energy. Have you ever wondered how millions of single cell organisms living in your body communicate with each other and know exactly what to do? It is not done via signals traveling via your nervous system – this important communication is done via C-domain.
 
-Just as an atom exhibits in its smallest form the characteristics of a particular matter in the P-domain, a C-energy unit represents in its most basic form the smallest unit of C-energy entity that can “think” of being something in other realms (energies/vibrations), including our own physical universe.
+Just as an atom exhibits in its smallest form the characteristics of a particular matter in the P-domain, a C-energy unit represents in its most basic form the smallest unit of C-energy entity that can *“think”* of being something in other realms (energies/vibrations), including our own physical universe.
 
 These *“thoughts”* of one or more C-energy units are then translated into vibrations of our and other physical worlds (and most not visible from the frequency of our physical world) via another set of energy units that I call Translational or T-energy Units.
 
@@ -52,7 +52,7 @@ I have created **CTP Energy Corporation** to begin to work on scientific-laborat
 
 Besides, next year in 2005, it will be exactly 100 years since Einstein predicted the existence of Atoms so it is appropriate that my actual scientific-laboratory research on my prediction that C-Energy Units exist starts on such an important scientific anniversary.
 
-Just as I am doing with my private space company International Space Systems (ISS) in CTP Energy Corporation we plan to involve many individuals.  Private Space and CTP Energy research could have huge world-altering implications, if we are successful.  Via your monthly membership to CTP Energy Club of just $10/month you will receive unlimited access to all much more detailed information on the ctp energy web site, weekly updates plus merchandise and other benefits.
+Just as I am doing with my private space company International Space Systems (ISS) in CTP Energy Corporation we plan to involve many individuals.  Private Space and CTP Energy research could have huge world-altering implications, if we are successful. Via your monthly membership to CTP Energy Club of just $10/month you will receive unlimited access to all much more detailed information on the ctp energy web site, weekly updates plus merchandise and other benefits.
 
 What you will soon learn about in a greater detail via this Web site is not a new religion, or a new occult or a new spiritualism. It really is the science of something we are all part of all the time – the C-domain. So many of us assume it is sufficient to believe in “the other world” and not have to understand it on a scientific basis. Many more do not believe that there is a scientific basis for the spiritual or C-domain world at all.
 
