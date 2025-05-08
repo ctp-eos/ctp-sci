@@ -1,6 +1,6 @@
-## 10 Basic Rules of CTP Energy Science
+### 10 Basic Rules of CTP Energy Science
 
-<h1 align="center">10 Basic Rules of CTP Energy Science</h1>
+<h2 align="center">10 Basic Rules of CTP Energy Science</h1>
 
 
 **<span style="color:blue">Rule 1:</span>** A C-energy Unit is the smallest unit of Conscious Energy that can exist and think on its own. The non-physical domain where C-energy exists is called the C-domain.
