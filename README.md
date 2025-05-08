@@ -20,7 +20,7 @@ We are building a new path toward greater intellectual, energetic, and spiritual
 
 This repo serves as a launchpad for:
 
-- Understanding the fundamental principles of CTPSci Sciences  
+- Understanding the fundamental principles of **CTPSci Sciences** 
 - Developing a new mental and energetic framework for personal and collective growth  
 - Preparing the knowledge base required before the eventual invention and implementation of CTP Energy Systems hardware  
 
@@ -32,7 +32,7 @@ Whether you're just beginning your journey or you're a deep thinker, inventor, o
 
 Our mission is to:
 
-- Advance human consciousness to a level compatible with C-domain interfacing  
+- **Advance human consciousness** to a level compatible with C-domain interfacing  
 - Catalyze the emergence of an advanced civilization that aligns with multidimensional intelligence, energy awareness, and post-Newtonian physics  
 - Bridge the gap between science and consciousness through the CTPSci framework  
 - Lay the theoretical groundwork for future physical technologies built on CTP Energy principles  
@@ -62,7 +62,9 @@ Coming soon:
 
 ## 🎓 Learning Path (Planned)
 
-- Intro to CTP Energy Science  
+- [CTP Energy Basic Background](https://github.com/ctp-eos/ctp-sci/blob/main/Basic%20Background.MD)
+- Intro to CTP Energy Science
+- CTP Energy: Original CTP Phase I Mission Statement  
 - C-Domain Theory and Applications  
 - Energetic Awareness Practices  
 - Pre-Physical System Modeling  
