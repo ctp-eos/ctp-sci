@@ -75,6 +75,10 @@ Well you do get beamed up to **C-Domain** every night on your own. Each one of u
 
 ### C-energy is the Ultimate Energy.
 
+---
+
+*CTP Energy: Original CTP Phase I Mission Statement - circa 2005*
+
 It exists and defines everything in physical and non-physical domains. It unifies all of us with **ALL** meaning for everyone and everything that surrounds us. Everything is connected via **C-energy**.
 
 > **It is the Ultimate Energy Behind Everything!™**
