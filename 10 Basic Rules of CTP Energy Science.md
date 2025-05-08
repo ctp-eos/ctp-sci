@@ -35,8 +35,8 @@ Non-physical C-energy does not create or interact directly with any physical or 
 
 ---
 
-These are the 10 Basic Rules of the CTP Energy Science/CTPSci Sciences.
-**Remember your history**: Newton's Three Laws of Motion defined a new era in physics.
+These are the 10 Basic Rules of the CTP Energy Science/CTPSci Sciences *(also referred to as the non-physical laws of C-domain)*.
+**Remember your history**: [Newton's Three Laws of Motion](https://en.wikipedia.org/wiki/Newton%27s_laws_of_motion) defined a **new era in physics**.
 
-Drazen's CTP Energy Science/CTPSci Sciences Rules introduce 10 new laws that apply to principles of the non-physical C-domain.
+**Drazen's CTP Energy Science/CTPSci Sciences Rules introduce 10 new laws that apply to principles of the non-physical C-domain.**
 
