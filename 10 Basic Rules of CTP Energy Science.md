@@ -31,5 +31,5 @@ These are the 10 Basic Rules of the CTP Energy Science/CTPSci Sciences *(also re
 **Drazen's CTP Energy Science/CTPSci Sciences Rules introduce 10 new laws that apply to principles of the non-physical C-domain.**
 
 
-This is Drazen's original wording of the final formulation of the **C-domain Mechanics** per CTP Phase I.
+This is Drazen's original wording of the final formulation of the **'C-domain Mechanics'** per CTP Phase I.
 
