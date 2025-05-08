@@ -43,7 +43,7 @@ Our mission is to:
 
 Humanity stands on the edge of a new era. Traditional science has brought us far, but its limitations are clear when confronting deeper questions of consciousness, intention, perception, and energy at a universal scale.
 
-CTP Energy Science proposes a **new integrated model** — one that goes beyond material reductionism to include fields of intelligence, hyper-dimensionality, and energetic potential that are **not yet measurable by conventional instrumentation** but are deeply experiential and fundamentally real.
+CTP Energy Science proposes a **new integrated model** — one that goes beyond material reductionism to include fields of intelligence, hyper-dimensionality, and energetic potential that are **not yet measurable by conventional instrumentation** but are deeply experiential and fundamentally real. *(C-energy interactions can be detected - indirectly or through other observations.)*
 
 > This knowledge base is the *first initiation* into that model — the seed of an entirely new paradigm of being, knowing, and creating.
 
