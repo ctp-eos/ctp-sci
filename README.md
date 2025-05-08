@@ -34,8 +34,8 @@ Our mission is to:
 
 - **Advance human consciousness** to a level compatible with C-domain interfacing  
 - Catalyze the emergence of an advanced civilization that aligns with multidimensional intelligence, energy awareness, and post-Newtonian physics  
-- Bridge the gap between science and consciousness through the CTPSci framework  
-- Lay the theoretical groundwork for future physical technologies built on CTP Energy principles  
+- Bridge the gap between present date P-sciences and **consciousness** or the **C-sciences** *(or the CTPSci Sciences)* through the **CTPSci framework**  
+- Lay the theoretical groundwork for future physical technologies built on CTP Energy and CTPSci Sciences principles  
 
 ---
 
