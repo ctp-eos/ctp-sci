@@ -84,3 +84,5 @@ It exists and defines everything in physical and non-physical domains. It unifie
 > **It is the Ultimate Energy Behind Everything!™**
 
 ---
+
+***CTP Energy - original CTP Mission Statement circa 2005***
