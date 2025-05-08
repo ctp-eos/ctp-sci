@@ -64,6 +64,7 @@ Coming soon:
 
 - [CTP Energy Basic Background](https://github.com/ctp-eos/ctp-sci/blob/main/Basic%20Background.md)
 - Intro to CTP Energy Science
+- [10 Basic Rules of CTP Energy Science](https://github.com/ctp-eos/ctp-sci/blob/main/10%20Basic%20Rules%20of%20CTP%20Energy%20Science.md)
 - CTP Energy: Original CTP Phase I Mission Statement  
 - C-Domain Theory and Applications  
 - Energetic Awareness Practices  
