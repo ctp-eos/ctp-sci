@@ -92,11 +92,11 @@ I created **CTP Energy Corporation** to begin **scientific-laboratory research**
 > In 2005, it will be exactly **100 years since Einstein predicted the existence of atoms**.  
 > This is a fitting time to begin scientific research on **C-Energy Units**.
 
-With my **private space company**, **International Space Systems (ISS)**, and **CTP Energy Corporation** (now CTP Energy, LLC), we plan to involve many individuals. **Private Space and CTP Energy research** could have **world-altering implications**.
+With my **private space company**, **International Space Systems (ISS)**, and **CTP Energy Corporation** *(now CTP Energy, LLC)*, we plan to involve many individuals. **Private Space and CTP Energy research** could have **world-altering implications**.
 
 ### Join the CTP Energy Club (CTP Phase II will refer to as Club CTP)
 
-With a monthly membership of just **$10/month** (these operations will come later), you will receive:
+With a monthly membership of just **$10/month** *(these operations will come later and will offer full-time CTP jobs)*, you will receive: 
 
 - Unlimited access to detailed information on the CTP Energy website
 - Weekly updates
