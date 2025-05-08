@@ -1,4 +1,4 @@
-# Basic Background
+# CTP Energy: Basic Background
 
 If we are spiritual beings, which we are, then just as our physical body is made of atoms and molecules, our spiritual or C-body must be made of something, and it is. It is made of units of Conscious energy or C-energy Units.
 
