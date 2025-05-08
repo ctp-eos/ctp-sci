@@ -5,7 +5,7 @@
 
 **<span style="color:blue">Rule 1:</span>** A C-energy Unit is the smallest unit of Conscious Energy that can exist and think on its own. The non-physical domain where C-energy exists is called the C-domain.
 
-**<span style="color:blue">Rule 2:</span>** C-energy creates millions of non-physical and physical realities each defined by a narrow range of C-energy frequencies not visible from another range or reality.
+**<span style="color:blue">Rule 2:</span>** C-energy creates millions of non-physical and physical realities each defined by a narrow range of C-energy Frequencies not visible from another range or reality.
 
 **<span style="color:blue">Rule 3:</span>** Units of C-energy of similar thinking group together in C-domain to form larger groups and partnerships each thinking of being someone or something in a physical or a non physical reality.
 
