@@ -24,7 +24,7 @@ In another domain, often referred to as the *spiritual domain* that is not visib
 
 In 1985, when I began to have my **C-domain experiences**, and started my research, it was triggered by a few very simple questions I had about us as human beings, our spirituality, and the *“greater invisible energy”* that Tesla talked about.
 
-I always sensed a “greater force” behind everything and everyone, but I could not find any good explanations about it that made sense to me. Most of what is out there in this field can be considered as religion or occult, but not as science. I was interested in finding out more about the **science of the C-domain** or spiritual energy and what it is made of. Are there *“atoms”* of our spiritual energy and existence? If so, how do they relate to everything else in the Universe?
+I always sensed a *“greater force”* behind everything and everyone, but I could not find any good explanations about it that made sense to me. Most of what is out there in this field can be considered as religion or occult, but not as science. I was interested in finding out more about the **science of the C-domain** or spiritual energy and what it is made of. Are there *“atoms”* of our spiritual energy and existence? If so, how do they relate to everything else in the Universe?
 
 I also felt that if this understanding could be achieved, it would then explain many other aspects and phenomena of life and the universe — and it does. From the beginning of my research into CTP Energy, I felt strongly that this knowledge should be shared with many.
 
