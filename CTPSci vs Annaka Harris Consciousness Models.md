@@ -4,7 +4,7 @@ Annaka Harris's exploration of consciousness, particularly in her article “Con
 
 ---
 
-## 1. The Limitations of Emergentist and Panpsychist Views
+## 1. The Limitations of Present Date/Emergentist and Panpsychist Views
 
 Harris critiques the emergentist view, highlighting the lack of empirical evidence explaining how subjective experience (qualia) arises from physical processes. She suggests that this gap indicates a need to consider consciousness as a fundamental component of the universe, akin to space or time. This aligns with panpsychism, which posits that consciousness is a fundamental and ubiquitous feature of reality.
 
