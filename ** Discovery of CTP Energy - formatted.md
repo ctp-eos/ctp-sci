@@ -79,9 +79,9 @@ A **scientific understanding** of the **CTP Energy Cycle™** will eventually le
 > No interstellar travel will be possible using only the speed of light.  
 > C-energy communication is **instant** — it does not rely on spatial distance or time.
 
-This explains why **SETI** efforts have not received communication from advanced civilizations — they use **C-energy frequencies** and CTP Energy Communication Systems.
+This explains why **SETI** efforts have not received communication from advanced civilizations — they use **C-energy Frequencies** and CTP Energy Communication Systems.
 
-In the **C-domain**, *“where you are”* is determined not by physical space or time, but by your **C-energy frequency**.
+In the **C-domain**, *“where you are”* is determined not by physical space or time, but by your **C-energy Frequency**.
 
 ---
 
