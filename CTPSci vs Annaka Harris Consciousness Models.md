@@ -22,7 +22,9 @@ This framework challenges both emergentist and panpsychist models by introducing
 
 ## 3. Implications for Scientific Paradigms
 
-The idea of consciousness as arising from non-physical C-energy Units necessitates a paradigm shift, reminiscent of past scientific revolutions. Such a shift would require integrating subjective experience into the fabric of scientific inquiry *(adding the inclusions of two additional non-physical Fundamental Forces/carriers)*, challenging the objective-only stance traditionally held. For CTPSci, this means expanding research methodologies to include interdisciplinary approaches that account for consciousness not just as a byproduct but as an integral element of physical theories - and that physical reality itself is an ***'outer-layer'*** overlaying a non-physical/non-material substrate.
+The idea of consciousness as arising from non-physical C-energy Units necessitates a paradigm shift, reminiscent of past scientific revolutions. 
+
+Such a shift would require integrating subjective experience into the fabric of scientific inquiry *(adding the inclusions of two additional non-physical Fundamental Forces/carriers)*, challenging the objective-only stance traditionally held. For CTPSci, this means expanding research methodologies to include interdisciplinary approaches that account for consciousness not just as a byproduct but as an integral element of physical theories - and that physical reality itself is an ***'outer-layer'*** overlaying a non-physical/non-material substrate.
 
 ---
 
