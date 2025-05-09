@@ -8,7 +8,7 @@ Annaka Harris's exploration of consciousness, particularly in her article “Con
 
 Harris critiques the emergentist view, highlighting the lack of empirical evidence explaining how subjective experience (qualia) arises from physical processes. She suggests that this gap indicates a need to consider consciousness as a fundamental component of the universe, akin to space or time. This aligns with panpsychism, which posits that consciousness is a fundamental and ubiquitous feature of reality.
 
-However, even panpsychism faces challenges, such as the "combination problem," which questions how simple forms of consciousness combine to form complex experiences. Harris proposes viewing consciousness as a pervasive field, analogous to spacetime, to address this issue. A noble attempt, however, does not complete the **CTP Model** required to explain or convey this energy-dynamic relationship. CTPSci Sciences also include the governing principles that operate and govern C-domain, itself.
+However, even panpsychism faces challenges, such as the "combination problem," which questions how simple forms of consciousness combine to form complex experiences. Harris proposes viewing consciousness as a pervasive field, analogous to spacetime, to address this issue. A noble attempt, however, does not complete the **CTP Model** required to explain or convey this energy-dynamic relationship. CTPSci Sciences include the governing principles/[rules](https://github.com/ctp-eos/ctp-sci/blob/main/10%20Basic%20Rules%20of%20CTP%20Energy%20Science.md) that operate and govern C-domain, itself.
 
 ---
 
