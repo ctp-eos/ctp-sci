@@ -22,13 +22,13 @@ This framework challenges both emergentist and panpsychist models by introducing
 
 ## 3. Implications for Scientific Paradigms
 
-The idea of consciousness as arising from non-physical C-energy Units necessitates a paradigm shift, reminiscent of past scientific revolutions. Such a shift would require integrating subjective experience into the fabric of scientific inquiry, challenging the objective-only stance traditionally held. For CTPSci, this could mean expanding research methodologies to include interdisciplinary approaches that account for consciousness not just as a byproduct but as an integral element of physical theories.
+The idea of consciousness as arising from non-physical C-energy Units necessitates a paradigm shift, reminiscent of past scientific revolutions. Such a shift would require integrating subjective experience into the fabric of scientific inquiry *(adding the inclusions of two additional non-physical Fundamental Forces/carriers)*, challenging the objective-only stance traditionally held. For CTPSci, this means expanding research methodologies to include interdisciplinary approaches that account for consciousness not just as a byproduct but as an integral element of physical theories - and that physical reality itself is an ***'outer-layer'*** overlaying a non-physical/non-material substrate.
 
 ---
 
 ## 4. Conclusion
 
-Annaka Harris’s exploration urges a reconsideration of the foundational assumptions in scientific research. By entertaining the possibility that consciousness is fundamental, she challenges disciplines to broaden their theoretical frameworks. However, models like those proposed by CTP Energy Science suggest that even these expanded frameworks may not fully capture the nature of consciousness, highlighting the need for new, potentially unifying perspectives in understanding reality. The **CTPModel** and CTP Energy discovered by Drazen both offers and solves this reality-model and reality-dynamisms required.
+Annaka Harris’s exploration urges a reconsideration of the foundational assumptions in scientific research. By entertaining the possibility that consciousness is fundamental, she challenges disciplines to broaden their theoretical frameworks. However, models like those proposed by CTP Energy Science suggest that even these expanded frameworks may not fully capture the nature of consciousness, highlighting the need for new, potentially unifying perspectives in understanding reality. The **CTP Model** and **CTP Energy** discovered by Drazen both offers and solves this reality-model and reality-dynamisms required.
 
 ---
 
@@ -51,6 +51,5 @@ Annaka Harris’s exploration urges a reconsideration of the foundational assump
 8. **Between Both Worlds.** (2006). *CTP -- The Unified Energy Field?*. [Link](https://betweenbothworlds.blogspot.com/2006/06/ctp-unified-energy-field.html)
 
 9. **Cosmic Core.** (n.d.). *Article 140: Consciousness - Consciousness Units - Part 1*. [Link](https://www.cosmic-core.org/free/article-140-consciousness-consciousness-units-part-1/)
-```
 
-This includes the full article along with the references as per your request.
+---
