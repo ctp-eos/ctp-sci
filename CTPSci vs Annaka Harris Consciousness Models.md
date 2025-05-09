@@ -14,7 +14,7 @@ However, even panpsychism faces challenges, such as the "combination problem," w
 
 ## 2. CTP Energy Science: A Distinct Framework
 
-CTP Energy Science (CTPSci) offers a different perspective by proposing that consciousness is generated via non-physical C-energy Units that reside within the **C-domain**. This model suggests that consciousness does not emerge from physical processes but is instead a fundamental aspect of a non-physical energetic substrate - that exists within its own non-physical energy domain *(outside of spacetime)*. In this view, the brain acts as an interpreter or receiver of consciousness, rather than its generator.
+CTP Energy Science (CTPSci) offers a different perspective by proposing that consciousness is generated via non-physical C-energy Units that reside within the **C-domain**. This model suggests that consciousness does not emerge from physical processes but is instead a fundamental aspect of a non-physical energetic substrate - that exists within its own non-physical energy domain *(outside of physical linear spacetime)*. In this view, the brain acts as an interpreter or receiver of consciousness, rather than its generator.
 
 This framework challenges both emergentist and panpsychist models by introducing a non-material basis for consciousness, suggesting that current physicalist ONLY, materialistic, reductionist scientific paradigms ARE COMPETELY INSUFFICIENT to fully explain conscious experience, NDE, or the reality of non-physical spiritual existence(s) *(including other non-physical phenomena)*.
 
