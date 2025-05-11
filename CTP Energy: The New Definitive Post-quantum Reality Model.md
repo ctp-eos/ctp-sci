@@ -89,7 +89,7 @@ CTP aligns with ancient and metaphysical views:
 - **Vedic Akasha or Prana**
 - **Field of Consciousness in Eastern metaphysics**
 - **Tesla's “ether of light” or radiant energy fields**
-- C-domain redefines the long theorized *'aether'*. (Repo notes: provide article on this topic)
+- **C-domain redefines the long theorized *'aether'*.** (Repo notes: provide article on this topic)
 
 ---
 
