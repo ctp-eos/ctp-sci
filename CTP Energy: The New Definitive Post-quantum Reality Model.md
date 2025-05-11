@@ -19,9 +19,9 @@ Physics currently operates under two dominant frameworks:
 
 Despite their success, these frameworks are **incompatible at fundamental levels**, particularly in extreme conditions like black holes or the Big Bang.[^1]
 
-In recent years, a growing number of physicists have proposed that **space-time is not fundamental** but instead **emerges** from a more primal order.[^2] If so, **what lies beneath it?**
+In recent years, a growing number of physicists have proposed that **space-time is not fundamental** but instead **emerges** from a more primal order.[^2] If so, **what lies beneath it?**: the non-physical.
 
-This is where **CTP: Conscious Translational Physics** and the ***C-domain*** enters the conversation.
+This is where **CTP: Conscious Translational Physics** and the non-physical ***C-domain*** enters the conversation.
 
 ---
 
