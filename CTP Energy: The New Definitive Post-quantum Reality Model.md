@@ -32,7 +32,7 @@ This is where **CTP: Conscious Translational Physics** enters the conversation.
 ### Key Concepts:
 - **C-domain:** A coherent, non-local/non-physical energetic substrate prefiguring observable phenomena.
 - **CTP (Conscious Translational Physics):** A new physics describing how consciousness and informational energy organize transformation into form, structure, and experience.
-- **CTP Energy:** The intrinsic activity within the C-domain driving emergence, coherence, and consciousness.
+- **CTP Energy:** The intrinsic activity within the non-physical C-domain driving emergence, coherence, and consciousness.
 
 ---
 
