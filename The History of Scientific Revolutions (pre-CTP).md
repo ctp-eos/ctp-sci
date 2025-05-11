@@ -1,4 +1,4 @@
-# CTP & the History of Scientific Revolutions
+# The History of Scientific Revolutions
 
 The history of scientific revolutions involves paradigm shifts—fundamental changes in scientific frameworks, methods, and assumptions that challenge established norms. These revolutions, as described by Thomas Kuhn in *The Structure of Scientific Revolutions* (1962), occur when anomalies in existing paradigms accumulate, leading to crises resolved by new frameworks. 
 
