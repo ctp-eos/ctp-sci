@@ -69,7 +69,7 @@ In 2025, *Scientific American* featured Karmela Padavic-Callaghan's report[^3] o
 - **Black Hole Information Paradox:** Space-time breaks down under extreme conditions.[^9]
 - **Dark Matter/Energy:** 95% of the universe is **undetectable by known physics**.[^10]
 
-**CTP** offers a unifying idea: that these anomalies point toward **an invisible, informational energy domain** from which space-time, matter, and causality emerge.
+**CTP** offers a unifying idea: that these anomalies point toward **an invisible, informational non-quantum/non-physical energy domain** ***the C-domain*** from which space-time, matter, and causality emerge.
 
 ---
 
