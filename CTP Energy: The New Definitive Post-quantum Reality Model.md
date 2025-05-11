@@ -109,8 +109,6 @@ The **C-domain** is not just a theory—it may be **the substrate of all substra
 
 ## References & Footnotes
 
-Here are updated footnotes with **external links** for each cited source, using reliable publication pages, research archives, or summaries when full sources aren't freely available. These are formatted to be GitHub Markdown-compatible:
-
 [^1]: Rovelli, C. (2004). *Quantum Gravity*. Cambridge University Press. [Publisher's page](https://www.cambridge.org/core/books/quantum-gravity/48E62B8D5D0A2E66C5BC6E9A530DC8DC)
 
 [^2]: Hossenfelder, S. (2018). *Lost in Math: How Beauty Leads Physics Astray*. [Official site](https://backreaction.blogspot.com/p/lost-in-math.html) | [Amazon](https://www.amazon.com/Lost-Math-Beauty-Physics-Astray/dp/0465094252)
