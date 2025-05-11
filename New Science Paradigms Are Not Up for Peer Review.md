@@ -71,7 +71,7 @@ CTP Energy is a private/siloed science for the time being, when it comes to *(fu
 **Contest CTP.**  
 **Denounce CTP.**  
   
-*(Or be daring and dare to join and support CTP within its own conceptual framework and be a part of something ***new***) and truly revolutionary!*
+*Or be daring and dare to join and support CTP within its own conceptual framework and be a part of something ***new*** and truly revolutionary!*
 
 ---
 
