@@ -79,7 +79,9 @@ The referenced document argues that peer review stifles revolutionary science by
 - **Technology**: AI and global collaboration accelerate revolutions, reducing reliance on peer review.
 
 ## Conclusion
-Scientific revolutions—from Copernicus to plate tectonics—show that transformative ideas face resistance from established systems, including peer review. The document’s critique aligns with this history, advocating for evaluation based on evidence and open discourse. By learning from past revolutions, science can better nurture groundbreaking paradigms.
+Scientific revolutions—from Copernicus to plate tectonics, to the emergence of new post-quantum/non-physical sciences CTPSci Sciences *(or 'the new science beyond the Standard Model of Physics)* show that transformative ideas face resistance from established systems, including peer review. 
+
+The document’s critique aligns with this history, advocating for evaluation based on evidence and open discourse. By learning from past revolutions, science can better nurture groundbreaking paradigms.
 
 ---
 
