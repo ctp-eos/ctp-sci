@@ -1,6 +1,8 @@
 # CTP & the History of Scientific Revolutions
 
-The history of scientific revolutions involves paradigm shifts—fundamental changes in scientific frameworks, methods, and assumptions that challenge established norms. These revolutions, as described by Thomas Kuhn in *The Structure of Scientific Revolutions* (1962), occur when anomalies in existing paradigms accumulate, leading to crises resolved by new frameworks. This document explores key scientific revolutions, linking them to the argument in [CTP: New Science Paradigms Are Not Up for Peer Review](https://github.com/ctp-eos/ctp-sci/blob/main/CTP:%20New%20Science%20Paradigms%20Are%20Not%20Up%20for%20Peer%20Review.md), which critiques peer review as a barrier to revolutionary science.
+The history of scientific revolutions involves paradigm shifts—fundamental changes in scientific frameworks, methods, and assumptions that challenge established norms. These revolutions, as described by Thomas Kuhn in *The Structure of Scientific Revolutions* (1962), occur when anomalies in existing paradigms accumulate, leading to crises resolved by new frameworks. 
+
+This document explores key scientific revolutions, linking them to the argument in [CTP: New Science Paradigms Are Not Up for Peer Review](https://github.com/ctp-eos/ctp-sci/blob/main/CTP:%20New%20Science%20Paradigms%20Are%20Not%20Up%20for%20Peer%20Review.md), which critiques peer review as a barrier to **revolutionary science** *(most of all: progress)*.
 
 ## Major Scientific Revolutions
 
