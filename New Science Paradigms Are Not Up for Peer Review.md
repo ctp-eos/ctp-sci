@@ -38,7 +38,7 @@ Universities and scientific bodies tend to lag behind true innovation. They rewa
 
 ## 4. Gatekeeping via “Acceptable” Methodology
 
-CTP research employs tools and methodologies that mainstream science has yet to recognize—such as torsion field analysis, bioresonant coupling, and higher-dimensional phase translation. These are often dismissed outright, not because they are invalid, but because they require new modes of observation, instrumentation, and mathematics.
+CTP research employs tools and methodologies that mainstream science has yet to recognize—such as non-physical CTP field analysis, CTP bioresonant coupling, and non-physical higher-dimensional phase translation via CTP Energy. These are often dismissed outright, not because they are invalid, but because they require new modes of observation, instrumentation, and mathematics.
 
 > **CTP Implication:** Traditional peer reviewers demand experiments that can be repeated within known parameters. But if the parameters themselves are shifting—driven by consciousness or dimensional coupling—then old tools become blindfolds.
 
@@ -50,9 +50,13 @@ CTP research employs tools and methodologies that mainstream science has yet to 
 
 History shows that peer-reviewed validation follows *after* public or technological validation. It was not journals that legitimized flight, relativity, or plate tectonics—it was demonstration. Peer review then codifies what is already undeniable.
 
-> **CTP Implication:** CTP will not seek approval through publication first—it will demonstrate function. When conscious phase modulation or non-local field effects yield reliable applications, the paradigm will shift—and peer review will follow, not lead.
+> **CTP Implication:** CTP will not seek approval through publication first—it will demonstrate function within its own ***terminology*** and within its **own lexicon**. When conscious phase modulation or non-local field effects yield reliable applications, the paradigm will shift—and peer review will follow, not lead.
 
 > Philosopher Imre Lakatos emphasized that science advances through progressive research programs—not necessarily via acceptance by institutions[^5].
+
+> As one of Resofactor's quotes says,  
+> **"Innovation leads, consensus only follows."**
+
 
 ---
 
