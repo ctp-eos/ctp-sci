@@ -109,13 +109,27 @@ The **C-domain** is not just a theory—it may be **the substrate of all substra
 
 ## References & Footnotes
 
-[^1]: Rovelli, C. (2004). *Quantum Gravity*. Cambridge University Press.  
-[^2]: Hossenfelder, S. (2018). *Lost in Math: How Beauty Leads Physics Astray*.  
+Here are updated footnotes with **external links** for each cited source, using reliable publication pages, research archives, or summaries when full sources aren't freely available. These are formatted to be GitHub Markdown-compatible:
+
+[^1]: Rovelli, C. (2004). *Quantum Gravity*. Cambridge University Press. [Publisher's page](https://www.cambridge.org/core/books/quantum-gravity/48E62B8D5D0A2E66C5BC6E9A530DC8DC)
+
+[^2]: Hossenfelder, S. (2018). *Lost in Math: How Beauty Leads Physics Astray*. [Official site](https://backreaction.blogspot.com/p/lost-in-math.html) | [Amazon](https://www.amazon.com/Lost-Math-Beauty-Physics-Astray/dp/0465094252)
+
 [^3]: Padavic-Callaghan, K. (2025). *Scientific American*, “Physicists Say Space-Time Is Not Real.”  
-[^4]: Ambjørn, J., Jurkiewicz, J., & Loll, R. (2004). *Causal Dynamical Triangulations*.  
-[^5]: Smolin, L. (2001). *Three Roads to Quantum Gravity*.  
-[^6]: Susskind, L. (1995). *The World as a Hologram*, J. Math. Phys.  
-[^7]: Aspect, A. (1982). *Bell’s Inequality Test*.  
-[^8]: Wheeler, J. A. (1978). *Delayed Choice Experiments*.  
-[^9]: Hawking, S. (1976). *Breakdown of Predictability in Gravitational Collapse*.  
-[^10]: Planck Collaboration (2018). *Cosmological Parameters Report*.
+[Scientific American Archive](https://www.scientificamerican.com/) (search title if link is unavailable directly due to date)
+
+[^4]: Ambjørn, J., Jurkiewicz, J., & Loll, R. (2004). *Causal Dynamical Triangulations*. [arXiv preprint](https://arxiv.org/abs/hep-th/0404156)
+
+[^5]: Smolin, L. (2001). *Three Roads to Quantum Gravity*. [Penguin Random House](https://www.penguinrandomhouse.com/books/169064/three-roads-to-quantum-gravity-by-lee-smolin/)
+
+[^6]: Susskind, L. (1995). *The World as a Hologram*, J. Math. Phys. [arXiv preprint](https://arxiv.org/abs/hep-th/9409089)
+
+[^7]: Aspect, A., Dalibard, J., & Roger, G. (1982). *Experimental Test of Bell's Inequalities Using Time‐Varying Analyzers*. [Physical Review Letters](https://journals.aps.org/prl/abstract/10.1103/PhysRevLett.49.1804)
+
+[^8]: Wheeler, J. A. (1978). *The "Delayed Choice" Double-Slit Experiment*. [Wheeler summary via Stanford Encyclopedia of Philosophy](https://plato.stanford.edu/entries/qm-retrocausality/#WheDelChoExp)
+
+[^9]: Hawking, S. W. (1976). *Breakdown of Predictability in Gravitational Collapse*. [Physical Review D](https://journals.aps.org/prd/abstract/10.1103/PhysRevD.14.2460)
+
+[^10]: Planck Collaboration (2018). *Planck 2018 Results: Cosmological Parameters*. [arXiv preprint](https://arxiv.org/abs/1807.06209)
+
+
