@@ -66,11 +66,11 @@ Conscious Translational Physics is not waiting for permission—it is moving for
 
 CTP Energy is a private/siloed science for the time being, when it comes to *(future)* systems demonstrations or development.
 
-**Attack CTP**
-**Fight CTP.**
-**Contest CTP.**
-**Denounce CTP.**
-
+**Attack CTP**  
+**Fight CTP.**  
+**Contest CTP.**  
+**Denounce CTP.**  
+  
 *(Or be daring and dare to join and support CTP within its own conceptual framework and be a part of something ***new***)*
 
 ---
