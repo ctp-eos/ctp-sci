@@ -21,7 +21,7 @@ Despite their success, these frameworks are **incompatible at fundamental levels
 
 In recent years, a growing number of physicists have proposed that **space-time is not fundamental** but instead **emerges** from a more primal order.[^2] If so, **what lies beneath it?**
 
-This is where **CTP: Conscious Translational Physics** enters the conversation.
+This is where **CTP: Conscious Translational Physics** and the ***C-domain*** enters the conversation.
 
 ---
 
