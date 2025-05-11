@@ -75,7 +75,7 @@ In 2025, *Scientific American* featured Karmela Padavic-Callaghan's report[^3] o
 
 ## 6. Implications of CTP: Conscious Translational Physics
 
-- **New Physics:** A foundation not rooted in 4D space-time but in **non-local logic-like coherences.**
+- **New Physics:** A foundation not rooted in 4D space-time but in **non-local/non-physical logic-like coherences.**
 - **Post-Quantum Technologies:** Potential for new forms of energy generation, communication, and computation.
 - **Consciousness Science:** Incorporates mind as **co-creative**, not derivative.
 - **Multiverse and Dimensional Models:** Offers frameworks where **other domains** of order exist in parallel or phase-offset.
@@ -89,6 +89,7 @@ CTP aligns with ancient and metaphysical views:
 - **Vedic Akasha or Prana**
 - **Field of Consciousness in Eastern metaphysics**
 - **Tesla's “ether of light” or radiant energy fields**
+- C-domain redefines the long theorized *'aether'*. (Repo notes: provide article on this topic)
 
 ---
 
@@ -97,7 +98,7 @@ CTP aligns with ancient and metaphysical views:
 We are on the brink of a paradigm shift:
 - **Space-time is no longer sacred.**
 - **Information and energy coherence** may be the new foundation.
-- **CTP: Conscious Translational Physics** provides a viable candidate for this shift.
+- **CTP: Conscious Translational Physics** provides the BEST viable candidate for this shift.
 
 > “Everything we call real is made of things that cannot be regarded as real.”  
 > — *Niels Bohr*
