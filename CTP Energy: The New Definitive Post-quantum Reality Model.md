@@ -76,7 +76,7 @@ In 2025, *Scientific American* featured Karmela Padavic-Callaghan's report[^3] o
 ## 6. Implications of CTP: Conscious Translational Physics
 
 - **New Physics:** A foundation not rooted in 4D space-time but in **non-local/non-physical logic-like coherences.**
-- **Post-Quantum Technologies:** Potential for new forms of energy generation, communication, and computation.
+- **Post-Quantum Technologies:** Potential for new forms of energy generation, communication, and propulsion.
 - **Consciousness Science:** Incorporates mind as **co-creative**, not derivative.
 - **Multiverse and Dimensional Models:** Offers frameworks where **other domains** of order exist in parallel or phase-offset.
 
