@@ -2,7 +2,7 @@
 
 ## Thesis
 
-Conscious Translational Physics (CTP) is a breakthrough scientific paradigm that reframes the nature of energy, space, and consciousness. Like all genuine revolutions in science, CTP emerges outside the walls of traditional peer-reviewed academia—not from lack of rigor, but because it challenges the foundational assumptions the current system is built upon.
+Conscious Translational Physics (CTP) is a breakthrough scientific paradigm that reframes the nature of energy, space, and consciousness. Like all genuine revolutions in science, CTP emerges outside the walls of traditional peer-reviewed academia—not from lack of rigor, but because it challenges the foundational assumptions the **current system** is built upon.
 
 ---
 
