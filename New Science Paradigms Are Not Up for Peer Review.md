@@ -62,7 +62,16 @@ History shows that peer-reviewed validation follows *after* public or technologi
 
 ## Conclusion
 
-Conscious Translational Physics is not waiting for permission—it is moving forward through demonstration, innovation, and direct engagement with reality as it is, not as it has been defined. The peer review system may someday adapt to evaluate CTP on its own terms, but until then, it will remain an echo of the past. CTP represents the future of science—one that integrates energy, intention, and intelligence into a unified field of discovery.
+Conscious Translational Physics is not waiting for permission—it is moving forward through demonstration *(when additional resources become available for such)*, innovation, and direct engagement with reality as it is, not as it has been defined. The peer review system may someday adapt to evaluate CTP on its own terms, but until then, it will remain an echo of the past. CTP represents the future of science—one that integrates energy, intention, and intelligence into a unified field of discovery.
+
+CTP Energy is a private/siloed science for the time being, when it comes to *(future)* systems demonstrations or development.
+
+**Attack CTP**
+**Fight CTP.**
+**Contest CTP.**
+**Denounce CTP.**
+
+*(Or be daring and dare to join and support CTP within its own conceptual framework and be a part of something ***new***)*
 
 ---
 
