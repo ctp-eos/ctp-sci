@@ -8,7 +8,7 @@ Conscious Translational Physics (CTP) is a breakthrough scientific paradigm that
 
 ## 1. Peer Review Protects the Existing Paradigm
 
-Peer review was designed to validate discoveries *within* the existing scientific worldview. It protects continuity, not disruption. CTP, however, challenges core tenets of classical physics, quantum mechanics, and the materialist view of consciousness. It introduces models that incorporate conscious agency as a core component of energetic translation across dimensions—ideas that have no place in the current paradigm.
+Peer review was designed to validate discoveries *within* the **existing scientific worldview**. It protects **continuity**, not **disruption**. CTP, however, challenges core tenets of classical physics, quantum mechanics, and the materialist view of consciousness. It introduces models that incorporate conscious agency as a core component of energetic translation across dimensions—ideas that have **no place** in the **current paradigm**.
 
 > **CTP Implication:** Journals rooted in purely mechanistic, observer-independent models of the universe are not prepared to assess data that implies observer–reality entanglement. Peer review thus functions as a filter against paradigms like CTP that redefine the observer itself.
 
