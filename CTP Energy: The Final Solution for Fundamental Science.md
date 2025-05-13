@@ -55,7 +55,7 @@ The three domains of CTP reflect three nested ontological layers of reality:
 
 1. Conscious: The C-domain itself, structured by non-physical coherence fields and observer-modulated intention. This is the source of all pattern and form.
 2. Translational: The active dynamics by which C-Energy **translates** across dimensional membranes, creating phase-resonant feedback loops and stable corherent structure for the physical or P-domain to be able to exist *(within its own uniquely 'coded' C-energy Frequency Range)* of the total **'C-domain Reality Stack'** or as part of the **multiverse reality-bandwidth** as one exclusive reality layer or physically observable and-or measurable topology.
-3. Physical: The final emergent layer—spacetime, matter, energy, and motion—arising from C-domain translations made coherent by topological constraints.
+3. Physical: The final emergent layer—spacetime, matter, energy, and motion—arising from C-domain translations made coherent by topological constraints via CTP Energy and the CTP Energy Cycle.
 
 Thus:
 
