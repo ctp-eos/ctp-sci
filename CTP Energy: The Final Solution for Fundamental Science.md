@@ -9,15 +9,15 @@ Expanded Definitive Edition – May 2025
 
 ## Abstract
 
-Contemporary physics has reached a threshold. Its models explain phenomena within the observable domain but remain blind to the deeper architecture from which that domain emerges. Conscious Translational Physics (CTP) provides a unified framework that resolves this limitation. At its foundation is the recognition that the source layer of reality is not physical but energetic—an immaterial substrate known as the C-domain.
+Contemporary physics has reached a threshold. Its models explain phenomena within the observable domain but remain blind to the deeper architecture from which that domain emerges. Conscious Translational Physics (CTP) provides a unified framework that resolves this limitation. At its foundation is the recognition that the source layer of reality is not physical but energetic—an immaterial substrate known as the non-physical C-domain.
 
-Within this C-domain, a unique nonphysical energy structure—referred to as C-Energy—acts as the generator and sustainer of physical manifestation. This C-Energy may be described as a “spiritual atom,” a universal coherence carrier encoding the topology, polarity, and potential of all spacetime emergence.
+Within this C-domain, a unique non-physical energy structure—referred to as C-Energy—acts as the generator and sustainer of physical manifestation. This C-Energy may be described as a “spiritual atom,” a universal coherence carrier encoding the topology, polarity, and potential of all spacetime emergence.
 
 This paper formalizes the principles, implications, and unifying potential of CTP: a triadic energetic science that transcends both classical and quantum limitations and integrates the conscious, translational, and physical layers of existence.
 
 ---
 
-## 1. Introduction: Physics Has Reached Its Limit
+## 1. Introduction: Physics Has Reached Its Limit aka ['Physics is Stuck'](https://www.salon.com/2020/09/06/physics-is-stuck--and-needs-another-einstein-to-revolutionize-it-physicist-avi-loeb-says/)
 
 The Standard Model, quantum field theory, and general relativity have provided astonishing accuracy in describing the material world. Yet, they remain trapped within their own paradigm: materialist reductionism.
 
