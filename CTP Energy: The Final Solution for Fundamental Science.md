@@ -63,7 +63,7 @@ Thus:
 
 - The universe is not a mechanical system, but a living conscious or C-field or *thought field* of coherent translation.
 - Energy is not a property of matter; matter is a condition of energetic translation *condensed* into emergent physical properties.
-- Consciousness is not produced by the brain; the brain is a receiver-modulator of topological coherence within the C-domain and by a respective group of non-physical C-energy Units *(i.e. the non-physical spiritual or non-physical C-body)*.
+- Consciousness is not produced by the brain; the brain is a receiver-modulator of topological coherence within the C-domain and produced by a respective group of non-physical C-energy Units *(i.e. the non-physical spiritual or non-physical C-body)*.
 
 ---
 
