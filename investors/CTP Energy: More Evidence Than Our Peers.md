@@ -98,12 +98,16 @@ Considering the historical investment in speculative sciences, **CTP Energy Scie
 
 In comparison to the speculative investments that have yet to yield any tangible results, **CTP Energy Science** offers a compelling opportunity to invest in **science with evidence**—science that is already demonstrating new, world-changing technologies - we intend to pioneer ourselves. The mainstream media coverage of **UFO/UAP phenomena**, combined with the growing body of evidence supporting **CTP Energy's principles** and **technologies**, presents a significant opportunity for investors looking to support a field that has already demonstrated **real-world impact**.
 
+---
+
 **Investing in CTP Energy Science** is an investment in **proven innovation**, not speculative theories. 
+
+---
 
 ## Our Challenge and Offer:   
 
-- is to replicate these observed CTP Technologies based on OUR CTPSci Sciences understandings
-- and OUR foresite into the coming **Nth Industrial Revolution**.
+- is to pioneer and replicate these observed CTP Technologies based on OUR CTPSci Sciences understandings.
+- and is based on OUR foresite into the coming **Nth Industrial Revolution**.
 
 ---
 
