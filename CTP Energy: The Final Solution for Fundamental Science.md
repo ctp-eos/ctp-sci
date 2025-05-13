@@ -17,7 +17,7 @@ This paper formalizes the principles, implications, and unifying potential of CT
 
 ---
 
-## 1. Introduction: Physics Has Reached Its Limit aka ['Physics is Stuck'](https://www.salon.com/2020/09/06/physics-is-stuck--and-needs-another-einstein-to-revolutionize-it-physicist-avi-loeb-says/)
+## 1. Introduction: Physics Has Reached Its Limit (aka ['Physics is Stuck'](https://www.salon.com/2020/09/06/physics-is-stuck--and-needs-another-einstein-to-revolutionize-it-physicist-avi-loeb-says/))
 
 The Standard Model, quantum field theory, and general relativity have provided astonishing accuracy in describing the material world. Yet, they remain trapped within their own paradigm: materialist reductionism.
 
