@@ -1,7 +1,7 @@
 # Conscious Translational Physics (CTP):  
 ## The Final Solution for Fundamental Science (and Conscious Energy Integration)
 
-By Resofactor
+By [*Resofactor*](https://linktr.ee/resofactor)  
 CTP Energy Science Foundation  
 Expanded Definitive Edition – May 2025
 
