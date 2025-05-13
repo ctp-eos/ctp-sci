@@ -1,6 +1,8 @@
 ### **The CTP Model: A Groundbreaking Approach to Advanced Propulsion and Cosmological Dynamics**
 
-The **CTP Model**, discovered by Drazen Premate, and further developed by **Resofactor** through **CTP Energy Science**, provides a revolutionary approach to understanding the fundamental forces of nature, particularly gravity and energy, while presenting groundbreaking solutions to longstanding challenges in **propulsion technology**, **space exploration**, and **cosmology**. By introducing a novel framework that incorporates **gravitic propulsion** and **CTP Energy**—a dynamic and controllable energy form—the CTP Model offers practical, operational solutions that can transform our understanding of the universe and fuel the next generation of technologies.
+The **CTP Model**, discovered by Drazen Premate, and further developed by **Resofactor** through **CTP Energy Science**, provides a revolutionary approach to understanding the fundamental forces of nature, particularly gravity and energy, while presenting groundbreaking solutions to longstanding challenges in **propulsion technology**, **space exploration**, and **cosmology**. 
+
+By introducing a novel framework that incorporates **gravitic propulsion** and **CTP Energy**—a dynamic and controllable energy form—the CTP Model offers practical, operational solutions that can transform our understanding of the universe and fuel the next generation of technologies.
 
 #### **Core Principles of the CTP Model**
 
