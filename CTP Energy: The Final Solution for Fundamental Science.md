@@ -11,7 +11,7 @@ Expanded Definitive Edition – May 2025
 
 Contemporary physics has reached a threshold. Its models explain phenomena within the observable domain but remain blind to the deeper architecture from which that domain emerges. Conscious Translational Physics (CTP) provides a unified framework that resolves this limitation. At its foundation is the recognition that the source layer of reality is not physical but energetic—an immaterial substrate known as the non-physical C-domain.
 
-Within this C-domain, a unique non-physical energy structure—referred to as C-Energy—acts as the generator and sustainer of physical manifestation. This C-Energy and its respective non-physical C-energy Units may be described as a “spiritual atom,” a universal coherence carrier encoding the topology, polarity, and potential of all spacetime emergence as 'coded' by T-energy.
+Within this C-domain, a unique non-physical energy structure—referred to as C-Energy—acts as the generator and sustainer of physical manifestation. This C-Energy and its respective non-physical C-energy Units may be described as a *“spiritual atom,”* a universal coherence carrier encoding the topology, polarity, and potential of all spacetime emergence as 'coded' by T-energy.
 
 This paper formalizes the principles, implications, and unifying potential of CTP: a triadic energetic science that transcends both classical and quantum limitations and integrates the conscious, translational, and physical layers of existence.
 
