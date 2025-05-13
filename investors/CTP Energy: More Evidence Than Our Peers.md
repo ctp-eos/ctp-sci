@@ -30,9 +30,10 @@ Gravitons, the theoretical particles that would mediate gravity in quantum theor
 - **Investment to Date:** ~$25 Billion USD  
 - **Result:** No direct evidence of gravitons
 
-Gravitons were proposed in 1934 by theoretical physicist **Hideki Yukawa**, and while they remain a cornerstone of quantum gravity research, over **$25 billion USD** has been invested globally in quantum gravity research with **no physical evidence** to date. This long-standing pursuit continues to face skepticism, especially considering the fundamental nature of gravity itself may not be compatible with quantum mechanics in the way other forces, like electromagnetism, are.
+Gravitons were proposed in 1934 by theoretical physicist **Hideki Yukawa**, and while they remain a cornerstone of quantum gravity research, over **$25 billion USD** has been invested globally in quantum gravity research with **no physical evidence** to date. This long-standing pursuit continues to face skepticism, especially considering the fundamental nature of gravity itself may not be compatible with quantum mechanics in the way other forces, like electromagnetism, are.  
 
-**Non-physical origins of Gravity's nature: CTPSci Sciences offers new postquantum epistemological model to solve this long-standing mystery**.
+**Non-physical origins of Gravity's nature:   
+CTPSci Sciences offers new postquantum epistemological model to solve this long-standing mystery**.
 
 ## 4. **Other Unproven Theoretical Physics: Over $7.5 Billion Invested**
 
