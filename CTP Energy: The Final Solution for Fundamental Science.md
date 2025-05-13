@@ -27,7 +27,7 @@ From **dark matter** and **dark energy** *(due to two additional non-physical Fu
 
 That understanding cannot arise from further extensions of existing models, but requires a NEW model of reality: the **CTP Model**.
 
-It must come from recognizing the **ontological error** at the heart of **modern science**: its refusal to acknowledge the primacy of the non-physical domain—the C-domain—from which all else flows; the 'true' **Mind of God** as it were, but not that of an anthropomorphic or anthropomorphized ***Supreme Being***.
+It must come from recognizing the **ontological error** at the heart of **modern science**: its refusal to acknowledge the primacy of the non-physical domain—the C-domain—from which all else flows; the 'true' **Mind of God** as it were, but not from that of and-or originating from an anthropomorphic or anthropomorphized ***Supreme Being***.
 
 ---
 
