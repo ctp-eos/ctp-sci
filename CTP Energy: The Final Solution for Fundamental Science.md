@@ -11,7 +11,7 @@ Expanded Definitive Edition – May 2025
 
 Contemporary physics has reached a threshold. Its models explain phenomena within the observable domain but remain blind to the deeper architecture from which that domain emerges. Conscious Translational Physics (CTP) provides a unified framework that resolves this limitation. At its foundation is the recognition that the source layer of reality is not physical but energetic—an immaterial substrate known as the non-physical C-domain.
 
-Within this C-domain, a unique non-physical energy structure—referred to as C-Energy—acts as the generator and sustainer of physical manifestation. This C-Energy may be described as a “spiritual atom,” a universal coherence carrier encoding the topology, polarity, and potential of all spacetime emergence.
+Within this C-domain, a unique non-physical energy structure—referred to as C-Energy—acts as the generator and sustainer of physical manifestation. This C-Energy and its respective non-physical C-energy Units may be described as a “spiritual atom,” a universal coherence carrier encoding the topology, polarity, and potential of all spacetime emergence.
 
 This paper formalizes the principles, implications, and unifying potential of CTP: a triadic energetic science that transcends both classical and quantum limitations and integrates the conscious, translational, and physical layers of existence.
 
@@ -33,7 +33,7 @@ That understanding cannot arise from further extensions of existing models. It m
 
 Conscious Translational Physics begins with a bold yet necessary premise: that the ultimate substrate of reality is not matter or energy as traditionally defined, but an immaterial, topologically structured information field known as the C-domain.
 
-This domain is nonphysical, nonlocal, and ontologically prior to spacetime. It encodes all potential for emergence. Its foundational unit is not a fermion or boson, but a coherent energetic singularity—a C-Energy unit or "spiritual atom."
+This domain is nonphysical, nonlocal, and ontologically prior to spacetime. It encodes all potential for emergence. Its foundational unit is not a fermion or boson, but a coherent energetic singularity—a C-Energy unit or "spiritual atom."; thus the non-physical C-energy would be/is the *(true)* **God-particle** and NOT the Higgs Boson.
 
 These C-atoms are indivisible topological coherence seeds—self-referential energetic entities that structure the emergence of phase-space geometries, quantum behaviors, and observable fields.
 
