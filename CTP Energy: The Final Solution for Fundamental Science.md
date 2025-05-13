@@ -58,8 +58,8 @@ The three domains of CTP reflect three nested ontological layers of reality:
 Thus:
 
 - The universe is not a mechanical system, but a living field of coherent translation.
-- Energy is not a property of matter; matter is a condition of energetic translation.
-- Consciousness is not produced by the brain; the brain is a receiver-modulator of topological coherence within the C-domain.
+- Energy is not a property of matter; matter is a condition of energetic translation *condensed* into physical properties.
+- Consciousness is not produced by the brain; the brain is a receiver-modulator of topological coherence within the C-domain and a respective group of C-energy Units *(i.e. the non-physical spiritual or C-body)*.
 
 ---
 
@@ -78,14 +78,14 @@ This model naturally explains:
 
 - Vacuum fluctuations  
 - Quantum decoherence  
-- Gravity as a phase-curvature phenomenon  
+- Gravity as a 'code' embedded within different groups of varying types of the C-energy Units  
 - Conscious intention as a steering input into the translation layer  
 
 ---
 
 ## 5. Consciousness: The Architect of Form
 
-Consciousness in CTP is not an effect, but a cause. It arises not from neurons but from recursive coherence loops within the C-domain. Each conscious observer is a localized instance of C-domain feedback, phase-locked into physical structure.
+Consciousness in CTP is not an effect, but a cause. It arises not from neurons but from recursive coherence loops within the C-domain and a unique CE Group. Each conscious observer is a localized instance of C-domain feedback, phase-locked into physical structure via T-energy.
 
 Thus:
 
