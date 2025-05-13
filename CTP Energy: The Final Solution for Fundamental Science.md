@@ -1,5 +1,5 @@
 # Conscious Translational Physics (CTP):  
-## The Final Solution for Fundamental Science and Conscious Energy Integration
+## The Final Solution for Fundamental Science (and Conscious Energy Integration)
 
 By Resofactor
 CTP Energy Science Foundation  
