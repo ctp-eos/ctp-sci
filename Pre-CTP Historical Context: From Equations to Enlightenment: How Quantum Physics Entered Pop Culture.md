@@ -1,4 +1,4 @@
-# ✨ Pre-CTP Energy Historical Context: From Equations to Enlightenment: How Quantum Physics Entered Pop Culture
+# ✨ Pre-CTP Historical Context: From Equations to Enlightenment: How Quantum Physics Entered Pop Culture
 
 ## 🧭 Introduction
 
