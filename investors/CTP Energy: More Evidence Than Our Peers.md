@@ -104,7 +104,7 @@ In comparison to the speculative investments that have yet to yield any tangible
 
 ---
 
-## Our Challenge and Offer:   
+## Our CTP Challenge and Offer:   
 
 - is to pioneer and replicate these observed CTP Technologies based on OUR CTPSci Sciences understandings.
 - and is based on OUR foresite into the coming **Nth Industrial Revolution**.
