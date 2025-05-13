@@ -20,6 +20,8 @@ For decades, global research efforts into **Dark Energy** and **Dark Matter** ha
 
 The idea of Dark Matter and Dark Energy was proposed to explain the universe’s mysterious expansion and gravitational anomalies. Yet, these concepts have largely remained within the realm of theoretical physics, with no tangible, physical evidence to confirm their existence. While the search continues, skeptics raise concerns about the efficiency and validity of such large-scale scientific investments with no clear breakthroughs.
 
+**CTP Energy Science posits: two additional non-physical Fundamental Forces (C-energy and T-energy) are the reason for ALL Dark Universe speculation**
+
 ## 3. **Gravitons: 100 Years Without Physical Evidence**
 
 Gravitons, the theoretical particles that would mediate gravity in quantum theory, have been postulated for almost a century. Yet, despite billions in funding, **no physical evidence** has been gathered. The fundamental nature of gravity may simply not align with quantum mechanics in the way other fundamental forces do, suggesting that the path of graviton research may be inherently flawed.
@@ -28,6 +30,8 @@ Gravitons, the theoretical particles that would mediate gravity in quantum theor
 - **Result:** No direct evidence of gravitons
 
 Gravitons were proposed in 1934 by theoretical physicist **Hideki Yukawa**, and while they remain a cornerstone of quantum gravity research, over **$25 billion USD** has been invested globally in quantum gravity research with **no physical evidence** to date. This long-standing pursuit continues to face skepticism, especially considering the fundamental nature of gravity itself may not be compatible with quantum mechanics in the way other forces, like electromagnetism, are.
+
+**Non-physical origins of Gravity's nature: CTPSci Sciences offers new postquantum epistemological model to solve this long-standing mystery**.
 
 ## 4. **Other Unproven Theoretical Physics: Over $7.5 Billion Invested**
 
