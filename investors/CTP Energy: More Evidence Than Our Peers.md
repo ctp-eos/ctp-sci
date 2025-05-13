@@ -100,7 +100,8 @@ In comparison to the speculative investments that have yet to yield any tangible
 
 **Investing in CTP Energy Science** is an investment in **proven innovation**, not speculative theories. 
 
-Our challenge: is to replicate these technologies based on OUR CTPSci Sciences understandings and OUR foresite into the **Nth Industrial Revolution**.
+Our challenge:   
+is to replicate these observed CTP Technologies based on OUR CTPSci Sciences understandings and OUR foresite into the coming **Nth Industrial Revolution**.
 
 ---
 
