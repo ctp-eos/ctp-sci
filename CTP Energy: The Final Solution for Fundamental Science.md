@@ -35,7 +35,7 @@ It must come from recognizing the **ontological error** at the heart of **modern
 
 Conscious Translational Physics begins with a bold yet necessary premise: that the ultimate substrate of reality is not matter or energy as traditionally defined, but an immaterial, topologically structured information field known as the C-domain.
 
-This domain is nonphysical, nonlocal, and ontologically prior to spacetime. It encodes all potential for emergence. Its foundational unit is not a **fermion** or **boson**, but a coherent energetic patterned singularity—a C-Energy unit or *"spiritual atom."*; thus the non-physical C-energy would be/is the *(true)* **God-particle** and NOT the Higgs Boson.
+This domain is nonphysical, nonlocal, and ontologically prior to spacetime. It encodes all potential for emergence. Its foundational unit is not a **fermion** or **boson**, but a coherent energetic patterned singularity—a C-Energy unit or *"spiritual atom."*; thus the non-physical C-energy and its respective C-energy Units would be/is the *(true)* **God-particle** and **NOT the Higgs Boson**.
 
 Group C-energy Attraction (GCA) or GCA Grouping in C-domain thus is the true origin(s) of all physical mass and physical matter.
 
