@@ -17,7 +17,7 @@ This repository is intended serve as a launchpad to support transparency, engage
 The deep-tech components of **CTP Energy Sciences** are siloed and maintained as proprietary trade secrets. These systems are not disclosed in this repository. The only community-driven, open-source initiative under the CTP umbrella is the **CTP-EOS Linux** project, which is separate from the company’s core intellectual property and energy science technologies.
 
 
-# CTPSci Repository Overview
+# CTPSci Repository Overview (Part II)
 
 The **CTPSci** repository is the core codebase for the CTP Energy Science initiative, focusing on the development and research of innovative energy sciences and technologies. This repository serves as a key component in the foundation of CTP Energy, LLC, providing a structured framework for various scientific and technical applications, including experimental systems, software tools, and integration modules.
 
