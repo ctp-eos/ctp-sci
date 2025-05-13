@@ -35,6 +35,6 @@ We're actively looking for collaborators. If you're passionate about frontier sc
 
 ## 📄 License
 
-All Licenses in CTP-related repos are either Creative Commons or otherwise applicable per fork/repo. 
+All Licenses in CTP-related repos are either Creative Commons or otherwise applicable per fork/repo.   
 *(Please see/refer to Licensing details as needed/per repository/fork)*
 
