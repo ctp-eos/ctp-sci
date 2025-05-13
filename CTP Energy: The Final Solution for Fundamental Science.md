@@ -35,7 +35,7 @@ It must come from recognizing the **ontological error** at the heart of **modern
 
 Conscious Translational Physics begins with a bold yet necessary premise: that the ultimate substrate of reality is not matter or energy as traditionally defined, but an immaterial, topologically structured information field known as the C-domain.
 
-This domain is nonphysical, nonlocal, and ontologically prior to spacetime. It encodes all potential for emergence. Its foundational unit is not a fermion or boson, but a coherent energetic patterned singularity—a C-Energy unit or *"spiritual atom."*; thus the non-physical C-energy would be/is the *(true)* **God-particle** and NOT the Higgs Boson.
+This domain is nonphysical, nonlocal, and ontologically prior to spacetime. It encodes all potential for emergence. Its foundational unit is not a **fermion** or **boson**, but a coherent energetic patterned singularity—a C-Energy unit or *"spiritual atom."*; thus the non-physical C-energy would be/is the *(true)* **God-particle** and NOT the Higgs Boson.
 
 Group C-energy Attraction (GCA) or GCA Grouping in C-domain thus is the true origin(s) of all physical mass and physical matter.
 
@@ -61,7 +61,7 @@ The three domains of CTP reflect three nested ontological layers of reality:
 
 Thus:
 
-- The universe is not a mechanical system, but a living field of coherent translation.
+- The universe is not a mechanical system, but a living conscious or C-field or *thought field* of coherent translation.
 - Energy is not a property of matter; matter is a condition of energetic translation *condensed* into emergent physical properties.
 - Consciousness is not produced by the brain; the brain is a receiver-modulator of topological coherence within the C-domain and a respective group of C-energy Units *(i.e. the non-physical spiritual or C-body)*.
 
