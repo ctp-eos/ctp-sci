@@ -23,7 +23,7 @@ We aim to pioneer new paths in software and physics by aligning technology devel
 ## 🔗 Related Projects
 
 - [CTP-EOS Linux](https://github.com/ctp-eos)
-- [CTP Energy Science Foundation](*(coming soon)*)
+- [CTP Energy Science Foundation]*(coming soon)*
 
 ## 🤝 Contributing
 
