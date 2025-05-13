@@ -10,7 +10,7 @@ At the heart of the CTP Model lies a new paradigm that redefines how we approach
 
 This energy, which is fundamentally different from traditional energy forms like electromagnetic or nuclear energy, provides the foundation for advanced propulsion systems and offers fresh insights into cosmological phenomena.
 
-1. **Gravitic Propulsion: The Next Step in Space Travel**
+1. **CTP Gravitic Propulsion: The Next Step in Space Travel**
 
 Traditional propulsion methods, which rely on the expulsion of matter or electromagnetic radiation *(e.g., ion drives, chemical rockets)*, face limitations in terms of efficiency, energy consumption, and the ability to achieve **near-light-speed travel**. The **CTPcraft**—vehicles powered by the CTP Model’s principles—overcome these limitations by utilizing **CTP Gravitic Propulsion**, which enables future **CTP craft** to control/manipulate/modulate gravity directly.
 
