@@ -100,13 +100,13 @@ In comparison to the speculative investments that have yet to yield any tangible
 
 ---
 
-**Investing in CTP Energy Science** is an investment in **proven innovation**, not speculative theories. 
+**Investing in CTP Energy Science** is an investment in **observed technologies**, not speculative theories. 
 
 ---
 
 ## Our CTP Challenge and Offer:   
 
-- is to pioneer and replicate these observed CTP Technologies based on OUR CTPSci Sciences understandings.
+- is to pioneer, forward-engineer, and replicate these observed CTP Technologies and future innovations based on **OUR CTPSci Sciences understandings**.
 - and is based on OUR foresite into the coming **Nth Industrial Revolution**.
 
 ---
