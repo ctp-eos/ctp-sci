@@ -20,7 +20,8 @@ For decades, global research efforts into **Dark Energy** and **Dark Matter** ha
 
 The idea of Dark Matter and Dark Energy was proposed to explain the universe’s mysterious expansion and gravitational anomalies. Yet, these concepts have largely remained within the realm of theoretical physics, with no tangible, physical evidence to confirm their existence. While the search continues, skeptics raise concerns about the efficiency and validity of such large-scale scientific investments with no clear breakthroughs.
 
-**CTP Energy Science posits: two additional non-physical Fundamental Forces (C-energy and T-energy) are the reason for ALL Dark Universe speculation**
+**CTP Energy Science posits:  
+two additional non-physical Fundamental Forces (C-energy and T-energy) are the reason for ALL *Dark Universe* speculation**
 
 ## 3. **Gravitons: 100 Years Without Physical Evidence**
 
