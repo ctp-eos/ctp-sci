@@ -16,7 +16,7 @@ Traditional propulsion methods, which rely on the expulsion of matter or electro
 
 By harnessing **CTP Energy** and modulating the gravitational field surrounding the craft, **CTPcraft** are capable of achieving **instantaneous acceleration**, **hovering**, and **trans-medium travel**—properties observed in **Unidentified Aerial Phenomena (UAPs)**. These capabilities are achieved without the need for traditional fuels or exhaust, making the CTP Model an **eco-friendly, zero-emission** solution for space travel.
 
-Through **CEMAS Arrays** (Controlled Energy Modulation and Amplification Systems), CTPcraft can manipulate gravitational forces to generate a propulsion effect, effectively creating anti-gravitic fields that make it possible to overcome inertia and the limitations imposed by traditional physics. This breakthrough *(after pioneering required CTP **deeptech R&D** will not only enable the creation of highly advanced spacecraft - but will also offer a pathway for interstellar exploration, **far beyond the reach of today’s conventional space travel**.
+Through **CEMAS Arrays** (Controlled Energy Modulation and Amplification Systems), CTPcraft can manipulate gravitational forces to generate a propulsion effect, effectively creating anti-gravitic fields that make it possible to overcome inertia and the limitations imposed by traditional physics. This near-future breakthrough *(after pioneering required CTP **deeptech R&D**)* will not only enable the creation of highly advanced spacecraft - but will also offer a pathway for interstellar exploration, **far beyond the reach of today’s conventional space travel**.
 
 2. **Redefining Gravity: Beyond Classical Theories**
 
