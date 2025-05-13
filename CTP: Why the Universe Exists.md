@@ -110,5 +110,3 @@ You are not a product of the universe.
 - Follow the conversation: `#CTPEnergy`, `#NewScience`, `#PostQuantum`, `#NewConsciousness`
 
 ---
-
-Let me know if you want a downloadable `README.md` version of this file or want to include CTP-branded visuals/logos.
