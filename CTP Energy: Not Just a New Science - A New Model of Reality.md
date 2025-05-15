@@ -41,7 +41,7 @@ This epistemology acknowledges:
 - **Participatory knowing**: Consciousness and perception are co-creative acts[^13]  
 - **Nonlocal causality**: Information and influence can transcend spatial separation[^14]  
 - **Biofield coherence**: Biological systems can synchronize with information fields in ways that challenge thermodynamic entropy and classical information theory[^15]
-- **Two New Fundamental Forces**: Non-physical C-energy and T-energy respectively, whereas T-energy *connects* non-physical C to physical P.
+- **Two New Fundamental Forces**: Non-physical C-energy and T-energy respectively, whereas T-energy *connects* the non-physical C to the physical P.
 -  The CTP Model provides this postquantum framework or the long-sought after 'new science beyond the Standard Model, whereas that it is NOT just a matter of *new physics* that is required, but must, however, also include a completely NEW post-quantum/non-physical epistemological framework while also offering and anteing up a **new paradigm** with it as the same.
 
 In this model, scientific method is expanded—not discarded—to include **subjective-verifiable interface phenomena**, such as remote sensing, intuitive diagnostics, energy healing, and interspecies communication[^16].
