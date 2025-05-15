@@ -83,7 +83,9 @@ The consistent remote electrochemical responsiveness of biological samples has i
 
 ## 7. Conclusion
 
-Cleve Backster’s third-party experimental findings—and those of researchers such as Sheldrake and Radin—form a growing body of evidence that supports the existence of a CTP transport mechanism. The unique properties of **C-Energy and the C-Domain** propose a **new biophysical layer of reality**, allowing for direct biological-to-biological communication beyond proximity, wiring, or standard quantum models. These phenomena are not paranormal—they are **hyper-normal**, representing an advanced energy science paradigm whose time has come.
+Cleve Backster’s third-party experimental findings—and those of researchers such as Sheldrake and Radin—form a growing body of evidence that supports the existence of a CTP transport mechanism. 
+
+The unique properties of **C-Energy and the C-Domain** propose a **new non-physical/biophysical layer of source-reality**, allowing for direct non-physical C-biological-to-biological communication beyond proximity, wiring, or standard quantum models. These phenomena are not paranormal—they are **hyper-normal**, representing an advanced energy science paradigm whose time has come" the CTPSci Sciences.
 
 ---
 
