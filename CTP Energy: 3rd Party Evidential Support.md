@@ -10,7 +10,9 @@ Drawing on third-party research, particularly that of Cleve Backster and other n
 
 ## 1. Introduction
 
-The concept of nonlocal communication between biological systems has been traditionally marginalized in mainstream science. However, the emergence of repeatable, empirical anomalies has necessitated a reevaluation of the energy domains involved in bioelectric signaling. The **CTP Energy model**—as introduced by CTP Energy Science—offers a transport mechanism not dependent on traditional electromagnetic or quantum channels but instead utilizes what is termed **C-Domain architecture**, which bridges spatially and temporally separated systems via coherent bio-informatic entanglement.
+The concept of nonlocal non-physical communication between biological systems has been traditionally marginalized in mainstream science. 
+
+However, the emergence of repeatable, empirical anomalies has necessitated a reevaluation of the energy domains involved in bioelectric signaling. The **CTP Energy model**—as introduced by CTP Energy Science—offers a transport mechanism not dependent on traditional electromagnetic or quantum channels but instead utilizes what is termed the non-physical **C-Domain architecture**, which bridges spatially and temporally separated systems via coherent bio-informatic entanglement/non-physically across the C-domain.
 
 ---
 
