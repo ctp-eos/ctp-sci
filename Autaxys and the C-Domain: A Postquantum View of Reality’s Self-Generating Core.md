@@ -100,4 +100,4 @@ The foundational paper, [**“Autaxys and Autology: Definition, Rationale, and I
 
 ---
 
-*For more information or to engage with this emerging paradigm, visit [CTP Energy Science](coming soon#) or request access to our foundational research documents and forthcoming white papers.*
+*For more information or to engage with this emerging paradigm, visit [CTP-EOS](www.github.com/ctp-eos) and browse through our various repositories for numerous articles provided or request access to our foundational research documents and forthcoming white papers.*
