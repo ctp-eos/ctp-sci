@@ -31,9 +31,12 @@ Based on observational data from WMAP, Planck, and Type Ia supernova surveys, th
 - **3.6% Intergalactic Gas**  
 - **0.4% Stars, Planets, Dust (ordinary matter)**
 
-![Cosmic Energy Distribution Pie Chart](Gq_OQcKaAAEjDQE.jpeg)
+<div align="center">
+  <img src="https://github.com/ctp-eos/ctp-sci/blob/main/images/ctp-cosmological-reality-model.png?raw=true" alt="CTP Cosmological Reality Model" width="600"/>
+</div>
 
 Yet despite knowing these proportions, modern science has **no direct empirical understanding** of the two dominant components.
+- - The **CTP Model** fits better than any other contemporary explanation available to date.
 
 ---
 
