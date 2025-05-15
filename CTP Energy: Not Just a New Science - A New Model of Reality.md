@@ -16,7 +16,7 @@ What if these phenomena aren't exceptions, but **essential features** of reality
 
 In this view, *observation doesn’t just influence reality—it helps construct it*[^4].
 
-## Section II: The Foundation of CTP Energy Science
+## Section II: The Foundation of CTP Energy Science (CTPSci)
 
 At its core, CTP Energy Science is built on new central axioms:
 
