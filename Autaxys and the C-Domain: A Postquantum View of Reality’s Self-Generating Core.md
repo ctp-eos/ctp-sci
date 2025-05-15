@@ -83,7 +83,7 @@ This distinction is critical: whereas digital physics often models reality as al
 
 Autaxys and the CTP Energy model provide a bold framework for understanding the universe not as a collection of things, but as a tapestry of living patterns—a cosmos that generates itself from within.
 
-By recognizing the C-Domain as the true definitive non-physical substrate of emergent reality, we move beyond debates about particles and waves, materialism and dualism, and enter a new terrain of inquiry—one where creativity, coherence, and emergence are fundamental via a completely new postquantum/non-physical unified epistemological model and higher *(dare we say 'higher dimensional/non-physical)* fundamental framework encompassing the total nature of CTP-reality.
+By recognizing the C-Domain as the true definitive non-physical substrate of emergent reality, we move beyond debates about particles and waves, materialism and dualism, and enter a new terrain of inquiry—one where creativity, coherence, and emergence are fundamental via a completely new postquantum/non-physical unified epistemological model and higher *(dare we say 'higher dimensional/non-physical)* fundamental framework encompassing the total nature of inter-domain CTP-reality.
 
 The foundational paper, **[“Autaxys and Autology: Definition, Rationale, and Implications,”](https://qnfo.org/projects/AUTX/AUTX_D002_Draft_v1.2)** lays out the terminological scaffolding for this framework and invites critical engagement from the scientific, philosophical, and technological communities.
 
