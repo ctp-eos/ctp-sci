@@ -1,4 +1,4 @@
-# New Science Requires New Lenses: Kuhn’s Paradigm Shifts and the CTP Energy Model
+# CTP: New Science Requires New Lenses: Kuhn’s Paradigm Shifts and the CTP Energy Model
 
 *By [Resofactor](https://linktr.ee/resofactor)*  
 *CTP Energy Science Research Division*  
