@@ -28,7 +28,7 @@ This anomalous reaction occurs in complete absence of any classical connection�
 
 ## 3. Nature of the Carrier: CTP Energy vs. Quantum Nonlocality
 
-Whereas quantum nonlocality describes correlations across entangled particles, the CTP Energy model asserts a *biologically-tuned carrier* that functions above the Planck scale and is accessible through high-coherence biophysical states (e.g., emotional focus, intent). Unlike quantum entanglement, CTP transport does not degrade with decoherence or environmental noise—making it applicable to **macro-scale, living systems**.
+Whereas quantum nonlocality describes correlations across entangled particles, the CTP Energy model asserts a *non-physical-tuned carrier* that functions above the Planck scale and is accessible through high-coherence non-physical conscious states *(e.g., emotional focus, intent)*. Unlike quantum entanglement, CTP transport does not degrade with decoherence or environmental noise—making it applicable to **macro-scale, living systems**.
 
 | Property                     | Quantum Entanglement      | CTP Energy (C-Domain)            |
 |-----------------------------|---------------------------|----------------------------------|
