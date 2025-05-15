@@ -24,7 +24,7 @@ At CTP Energy Science, we propose a model where all physical phenomena emerge fr
 - **P-Domain**: The rendered or “projected” domain of physical processes, which emerge from the C-Domain via what we call **CTP Energy**.
 - **CTP Energy**: The interface mechanism by which the C-Domain expresses itself into structured physicality. It includes informational, energetic, and temporal components.
 
-In this view, the "quantum particles" we observe are not entities per se, but rather **"pixels"**—temporary, interactive process events—rendered at the outer shell of a deeper computational-experiential engine. This aligns with autaxys, which posits that such particles are **interference patterns** within a larger, self-ordering matrix: the non-physical C-domain.
+In this view, the "quantum particles" we observe are not entities per se, but rather **"pixels"**—temporary, interactive process events—rendered at the outer shell of a deeper computational-experiential engine. This aligns with autaxys, which posits that such particles are **interference patterns** within a larger, self-ordering matrix: **the non-physical C-domain**.
 
 ---
 
