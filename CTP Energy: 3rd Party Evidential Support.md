@@ -4,7 +4,7 @@
 
 This article presents a scientific framework to validate the presence of a non-quantum, nonlocal bioenergetic transport mechanism termed **CTP Energy** (C-Energy), which operates through a distinct information and energy channel known as the **C-Domain**. 
 
-Drawing on third-party research, particularly that of Cleve Backster and other non-conventional experimentalists, we explore electrochemical reactivity in biological samples physically separated from their sources and theorize that such interactions are evidence of a functional, measurable CTP transport mechanism. We propose that CTP Energy science provides a novel framework to unify fringe biology, parapsychology, and biocommunication under a single consistent domain theory.
+Drawing on third-party research, particularly that of Cleve Backster and other non-conventional experimentalists, we explore electrochemical reactivity in biological samples physically separated from their sources and theorize that such interactions are evidence of a functional, measurable non-physical CTP transport mechanism. We propose that CTP Energy science provides a novel framework to unify fringe biology, parapsychology, and biocommunication under a single consistent domain theory.
 
 ---
 
