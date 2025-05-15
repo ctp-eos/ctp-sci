@@ -101,7 +101,7 @@ If you choose to purchase through our links, you become part of a growing moveme
 
 &mdash;  
 **CTP Energy, LLC**  
-_Pioneering CTP Energy Science & Hyper-Spatial C-domain Technology_
+_Pioneering CTP Energy Science & Hyper-Spatial C-domain Technology (into the Nth Industrial Revolution)_
 
 ---
 
