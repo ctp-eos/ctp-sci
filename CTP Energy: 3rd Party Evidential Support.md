@@ -60,7 +60,7 @@ The **C-domain** is a non-local *(indeed non-physical)* informational C-field co
 
 This structure, when activated through coherent emotion or thought/C-energy intent, modulates a non-physical carrier field we refer to as **C-Energy** or non-physical **Conscious Energy** which exists in the corresponding non-physical C-domain. 
 
-Physical braincells and physical brainwave activities *(alone)* would NOT be able to 'carry' information across these distances, thus a non-physical energy carrier *(C-energy and its respective non-physical domain (the C-domain)* is prerequisite and required to facilitate these outcomes and observances.
+Physical braincells and physical brainwave activities *(alone)* would NOT be able to 'carry' information across these distances, thus a non-physical energy carrier *(C-energy and its respective non-physical domain (the C-domain)* is/are prerequisite(s) and required to facilitate these outcomes and observances.
 
 <p align="center">
   <img src="https://github.com/ctp-eos/ctp-sci/blob/main/images/ctp-sci%20experiments.png?raw=true" alt="CTP Transport Model – Host → C-Field → Remote Sample Interaction" width="600"/>
