@@ -56,7 +56,7 @@ Whereas quantum nonlocality describes correlations across entangled particles, t
 
 **CTP Energy Science** describes a transport system not limited by speed-of-light constraints. 
 
-The **C-domain** is a non-local *(indeed non-physical)* informational C-field consciousness resides within the non-physical C-energy Units the non-physical C-body composed of - non-physically connected to a coherent non-spatial energy domain network—resembling a non-physical non-bio-spatial lattice. 
+The **C-domain** is a non-local *(indeed non-physical)* informational C-field consciousness resides within the non-physical C-energy Units the non-physical C-body composed of - non-physically connected to a coherent non-spatial energy domain network—resembling a non-physical non-biological-origin-non-physical-non-spatial energy lattice (C-domain). 
 
 This structure, when activated through coherent emotion or thought/C-energy intent, modulates a non-physical carrier field we refer to as **C-Energy** or non-physical **Conscious Energy** which exists in the corresponding non-physical C-domain. 
 
