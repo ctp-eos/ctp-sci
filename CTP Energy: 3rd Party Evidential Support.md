@@ -97,8 +97,8 @@ The unique properties of **C-Energy and the C-Domain** propose a **new non-physi
 
 2. [*The Presence of the Past: Morphic Resonance and the Habits of Nature*](https://www.amazon.com/dp/0892815353?tag=ctpenergy03-20) by Rupert Sheldrake (1988)
 
-3. [*Entangled Minds: Extrasensory Experiences in a Quantum Reality*](https://www.amazon.com/dp/1416516778?tag=ctpenergy03-20) by Dean Radin
+3. [*Entangled Minds: Extrasensory Experiences in a Quantum Reality*](https://www.amazon.com/dp/1416516778?tag=ctpenergy03-20) by Dean Radin (2006)
 
-4. [*Conscious Acts of Creation: The Emergence of a New Physics*](https://www.amazon.com/dp/1571743324?tag=ctpenergy03-20) by William A. Tiller, Walter E. Dibble, & Michael J. Kohane (2001)]
+4. [*Conscious Acts of Creation: The Emergence of a New Physics*](https://www.amazon.com/dp/1571743324?tag=ctpenergy03-20) by William A. Tiller, Walter E. Dibble, & Michael J. Kohane (2001)
 
 ---
