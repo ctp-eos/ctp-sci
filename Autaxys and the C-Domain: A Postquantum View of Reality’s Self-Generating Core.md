@@ -38,7 +38,7 @@ Autaxys suggests:
 - Information is not passive but *creative*.
 - Laws are not fixed absolutes but *emergent constraints*.
 
-This framework resonates with cybernetic theories, pancomputational ontology, and certain interpretations of quantum mechanics (e.g., QBism, relational quantum mechanics). However, autaxys provides a unifying postquantum substrate: a process-based engine of emergence rather than a field of pre-existing particles.
+This framework resonates with cybernetic theories, pancomputational ontology, and certain interpretations of quantum mechanics *(e.g., QBism, relational quantum mechanics)*. However, autaxys provides a unifying postquantum substrate: a process-based engine of emergence rather than a field of pre-existing particles.
 
 ---
 
@@ -83,9 +83,9 @@ This distinction is critical: whereas digital physics often models reality as al
 
 Autaxys and the CTP Energy model provide a bold framework for understanding the universe not as a collection of things, but as a tapestry of living patterns—a cosmos that generates itself from within.
 
-By recognizing the C-Domain as the true definitive non-physical substrate of emergent reality, we move beyond debates about particles and waves, materialism and dualism, and enter a new terrain of inquiry—one where creativity, coherence, and emergence are fundamental via a completley new epistemological model and higher *(dare we say 'higher dimensional/non-physical) fundamental framework encompassing the total nature of CTP-reality.
+By recognizing the C-Domain as the true definitive non-physical substrate of emergent reality, we move beyond debates about particles and waves, materialism and dualism, and enter a new terrain of inquiry—one where creativity, coherence, and emergence are fundamental via a completley new epistemological model and higher *(dare we say 'higher dimensional/non-physical)* fundamental framework encompassing the total nature of CTP-reality.
 
-The foundational paper, **“Autaxys and Autology: Definition, Rationale, and Implications,”** lays out the terminological scaffolding for this framework and invites critical engagement from the scientific, philosophical, and technological communities.
+The foundational paper, [**“Autaxys and Autology: Definition, Rationale, and Implications,”]([https://qnfo.org/research/2025/autaxys-defined](https://qnfo.org/projects/AUTX/AUTX_D002_Draft_v1.2))** lays out the terminological scaffolding for this framework and invites critical engagement from the scientific, philosophical, and technological communities.
 
 ---
 
