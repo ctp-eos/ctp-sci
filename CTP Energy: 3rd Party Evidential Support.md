@@ -93,9 +93,9 @@ The unique properties of **C-Energy and the C-Domain** propose a **new non-physi
 
 ## References
 
-1. Jensen, D. (1997). *Plants Respond: An Interview with Cleve Backster*. Retrieved from [https://derrickjensen.org/1997/07/plants-respond-interview-cleve-backster/](https://derrickjensen.org/1997/07/plants-respond-interview-cleve-backster/)  
-2. Sheldrake, R. (1988). *The Presence of the Past: Morphic Resonance and the Habits of Nature.*  
-3. Radin, D. (2006). *Entangled Minds: Extrasensory Experiences in a Quantum Reality.*  
-4. Tiller, W.A., Dibble, W.E., & Kohane, M.J. (2001). *Conscious Acts of Creation: The Emergence of a New Physics.*
+1. Jensen, D. (1997). *Plants Respond: An Interview with Cleve Backster*. <br> Retrieved from [https://derrickjensen.org/1997/07/plants-respond-interview-cleve-backster/](https://derrickjensen.org/1997/07/plants-respond-interview-cleve-backster/)  
+3. Sheldrake, R. (1988). *The Presence of the Past: Morphic Resonance and the Habits of Nature.*  
+4. Radin, D. (2006). *Entangled Minds: Extrasensory Experiences in a Quantum Reality.*  
+5. Tiller, W.A., Dibble, W.E., & Kohane, M.J. (2001). *Conscious Acts of Creation: The Emergence of a New Physics.*
 
 ---
