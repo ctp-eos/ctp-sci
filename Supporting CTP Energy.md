@@ -81,7 +81,7 @@ By clicking reference links and making purchases, you help:
 
 - Disseminate under-recognized scientific ideas  
 - Support experimental work in neglected frontier science  
-- Build foundations for future CTP Technologies (e.g. **CTP Gravitic Craft**)  
+- Build foundations for future CTP Technologies *(e.g. **CTP Gravitic Craft**)*  
 - Decentralize innovation funding away from establihed paradigm institutional gatekeeping
 - Our world completely dismissed/ignored Drazen over 20 years ago.
 - We could already be a multiplanetary civilization - TODAY - if Drazen/CTP Energy had receivered more traction/support over 20 years ago!
@@ -92,6 +92,7 @@ By clicking reference links and making purchases, you help:
 
 > We will **never compromise our editorial integrity**.  
 > We will only ever reference books and materials we believe are **genuinely valuable** to our readers and mission.
+> AI and AI based-research IS presently integrated in our research in order to expedite the roll-out of the CTPSci Sciences.
 
 If you choose to purchase through our links, you become part of a growing movement supporting one of the boldest deeptech projects of the 21st century.
 
