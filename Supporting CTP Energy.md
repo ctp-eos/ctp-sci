@@ -103,5 +103,5 @@ _Pioneering CTP Energy Science & Hyper-Spatial C-domain Technology_
 
 ---
 
-*"The next revolution in science is the revolution of Consciousness, itself! This is the CTPSci scienctific revolution! It will not be contained, confined, or gatekept behind institutional heirarchy of today's materialist academia paradigm. We are a private institution at the spearhead of a global planetary movement and open-source **new conscious initiative**.* 
+*"The next revolution in science is the revolution of Consciousness, itself! This is the CTPSci scienctific revolution! It will not be contained, confined, or gatekept behind institutional heirarchy of today's materialist academia paradigm. We are a private institution at the spearhead of a global planetary movement and open-source **new conscious initiative"**. It is CTP and CTP Energy that will bring to you all future UFO/UAP or CTP Technologies! Your early-stage support is both required and appreciated! Thank you!* 
 
