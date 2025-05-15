@@ -136,14 +136,11 @@ Kuhn’s message is clear: **new paradigms demand new lenses.** CTP Energy is on
 
 ## References
 
-1. Kuhn, Thomas S. (1962). _The Structure of Scientific Revolutions_. University of Chicago Press.  
-   [Amazon](https://www.amazon.com/dp/0226458121?tag=ctpenergy03-20)
+1. Kuhn, Thomas S. (1962). _The Structure of Scientific Revolutions_. University of Chicago Press. [Amazon](https://www.amazon.com/dp/0226458121?tag=ctpenergy03-20)
 
-2. Backster, Cleve (2003). _Primary Perception: Biocommunication with Plants, Living Foods, and Human Cells_.  
-   [Amazon](https://www.amazon.com/dp/1583944955?tag=ctpenergy03-20)
+2. Backster, Cleve (2003). _Primary Perception: Biocommunication with Plants, Living Foods, and Human Cells_. [Amazon](https://www.amazon.com/dp/1583944955?tag=ctpenergy03-20)
 
-3. Radin, Dean (1997). _The Conscious Universe: The Scientific Truth of Psychic Phenomena_.  
-   [Amazon](https://www.amazon.com/dp/0062515025?tag=ctpenergy03-20)
+3. Radin, Dean (1997). _The Conscious Universe: The Scientific Truth of Psychic Phenomena_. [Amazon](https://www.amazon.com/dp/0062515025?tag=ctpenergy03-20)
 
 4. Popp, Fritz-Albert. _Biophoton research and its applications_ (various articles and chapters).
 
@@ -160,3 +157,4 @@ Kuhn’s message is clear: **new paradigms demand new lenses.** CTP Energy is on
 
 **NOTE:** *(Updates to the official CTP corporate site will be slow and incremental until more resources are available. Until then, we will continue updating GitHub repos as this format is much easier *(and faster)* than an underfunded smallteam managing an extensive CMS platform.)*
 
+---
