@@ -68,7 +68,7 @@ Physical braincells and physical brainwave activities *(alone)* would NOT be abl
 
 *Figure 1: Placeholder for CTP Energy Transport Diagram*
 
-- Thought/C-energy finds its destination via C-domain matching the Group C-energy Frequency (GCF) of the destination recipient. -
+- Thought/configured C-energy finds its destination via C-domain matching the Group C-energy Frequency (GCF) of the destination recipient. 
 
 ---
 
