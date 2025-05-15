@@ -7,7 +7,7 @@
 - **Hyper-spatial energetics**
 - **Remote biological sensing**
 - **Nonlocal information transport**
-- The eventual realization of advanced **gravitic propulsion systems**
+- The eventual realization of advanced **CTP Gravitic Propulsion Systems**
 
 We maintain full transparency with our readers, supporters, and the scientific community at large. This article serves as both a **disclosure** and **support invitation** for those who wish to participate — indirectly but meaningfully — in the growth and mission of CTP Energy.
 
@@ -62,7 +62,7 @@ All earnings from affiliate programs (including Amazon Associates) are:
 
 - ✅ Reinvested directly into CTP Energy, LLC operations  
 - ✅ Used to fund open-access research publications  
-- ✅ Applied to theoretical tech prototyping (e.g. sensors, energy platforms)  
+- ✅ Applied to theoretical tech prototyping *(e.g. sensors, energy platforms)* 
 - ✅ Supporting future hiring, education, and outreach  
 
 > **Important:** None of these funds are used for personal gain or enrichment. Every dollar supports the **mission of CTP Energy**.
@@ -82,7 +82,7 @@ By clicking reference links and making purchases, you help:
 - Disseminate under-recognized scientific ideas  
 - Support experimental work in neglected frontier science  
 - Build foundations for future CTP Technologies (e.g. **CTP Gravitic Craft**)  
-- Decentralize innovation funding away from institutional gatekeeping  
+- Decentralize innovation funding away from establihed paradigm institutional gatekeeping  
 
 ---
 
