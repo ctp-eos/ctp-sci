@@ -9,7 +9,7 @@
 - **Nonlocal information transport**
 - The eventual realization of advanced **CTP Gravitic Propulsion Systems**
 
-We maintain full transparency with our readers, supporters, and the scientific community at large. This article serves as both a **disclosure** and **support invitation** for those who wish to participate — indirectly but meaningfully — in the growth and mission of CTP Energy.
+We maintain full transparency with our readers, supporters, and the scientific community at large. This article serves as both a **disclosure** and **support invitation** for those who wish to participate — indirectly but meaningfully — in the growth and mission of CTP Energy early-stages.
 
 ---
 
