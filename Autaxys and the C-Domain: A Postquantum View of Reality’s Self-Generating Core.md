@@ -85,7 +85,7 @@ Autaxys and the CTP Energy model provide a bold framework for understanding the 
 
 By recognizing the C-Domain as the true definitive non-physical substrate of emergent reality, we move beyond debates about particles and waves, materialism and dualism, and enter a new terrain of inquiry—one where creativity, coherence, and emergence are fundamental via a completely new postquantum/non-physical unified epistemological model and higher *(dare we say 'higher dimensional/non-physical)* fundamental framework encompassing the total nature of inter-domain CTP-reality(ies).
 
-The foundational paper, **[“Autaxys and Autology: Definition, Rationale, and Implications,”](https://qnfo.org/projects/AUTX/AUTX_D002_Draft_v1.2)** lays out the terminological scaffolding for this framework and invites critical engagement from the scientific, philosophical, and technological communities.
+The foundational paper, **[“Autaxys and Autology: Definition, Rationale, and Implications,”](https://qnfo.org/projects/AUTX/AUTX_D002_Draft_v1.2)** lays out its own terminological scaffolding for this framework and invites critical engagement from the scientific, philosophical, and technological communities. CTP supports and augments such, while taking this engagement into a completely new relational model and new ontological domain: the existence of the C-domain.
 
 ---
 
