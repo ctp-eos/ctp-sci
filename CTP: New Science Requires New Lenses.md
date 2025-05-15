@@ -100,7 +100,7 @@ Kuhn noted that **existing paradigms do not surrender easily**. Scientists entre
 
 Just as Einstein’s relativity required a break from Newtonian absolutes, CTP Energy Science requires:
 
-- **New vocabulary** (e.g., “hyper-spatial resonance,” “nonlocal imprinting”),
+- **New vocabulary** (e.g., “hyper-spatial resonance,” “nonlocal imprinting”, C-energy, T-energy, C-domain, etc.),
 - **New empirical tools** (e.g., resonance-based biophotonic detectors, consciousness-involved energy mapping),
 - **New philosophical underpinnings** (e.g., post-materialist science, participatory epistemology).
 
