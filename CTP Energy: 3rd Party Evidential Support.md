@@ -56,7 +56,10 @@ Whereas quantum nonlocality describes correlations across entangled particles, t
 
 **CTP Energy Science** describes a transport system not limited by speed-of-light constraints. The **C-domain** is a non-local informational field composed of a coherent standing waveform network—resembling a bio-spatial lattice. This structure, when activated through coherent emotion or biological intent, modulates a carrier field we refer to as **C-Energy**.
 
-![CTP Transport Model – Host → C-Field → Remote Sample Interaction](images/ctp-transport-model.png)  
+<p align="center">
+  <img src="https://github.com/ctp-eos/ctp-sci/blob/main/images/ctp-sci%20experiments.png?raw=true" alt="CTP Transport Model – Host → C-Field → Remote Sample Interaction" width="800"/>
+</p>
+
 *Figure 1: Placeholder for CTP Energy Transport Diagram*
 
 ---
