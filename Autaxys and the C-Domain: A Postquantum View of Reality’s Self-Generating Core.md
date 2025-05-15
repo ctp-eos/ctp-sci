@@ -92,17 +92,18 @@ The foundational paper, **[“Autaxys and Autology: Definition, Rationale, and I
 ## References
 
 
-[1] Rowan, A. (2022). *Nonlocal Pattern Coherence in Biological Systems: Evidence for a Non-Physical Substrate*. *Journal of Subtle Energies Research*, 18(3), 145–179. [Link](https://qnfo.org/library/rowan-coherence-paper)
 
-[2] Backster, C. (2003). *Primary Perception: Biocommunication with Plants, Living Foods, and Human Cells*. White Rose Millennium Press. [Link](https://www.goodreads.com/book/show/1069811.Primary_Perception)
+[1] Rowan, A. (2022). [*Nonlocal Pattern Coherence in Biological Systems: Evidence for a Non-Physical Substrate*](https://qnfo.org/library/rowan-coherence-paper). *Journal of Subtle Energies Research*, 18(3), 145–179.
 
-[3] Sheldrake, R. (2009). *Morphic Resonance: The Nature of Formative Causation*. Park Street Press. [Link](https://www.sheldrake.org/books-by-rupert-sheldrake/morphic-resonance)
+[2] Backster, C. (2003). [*Primary Perception: Biocommunication with Plants, Living Foods, and Human Cells*](https://www.goodreads.com/book/show/1069811.Primary_Perception). White Rose Millennium Press.
 
-[4] Bohm, D. (1980). *Wholeness and the Implicate Order*. Routledge. [Link](https://www.routledge.com/Wholeness-and-the-Implicate-Order/Bohm/p/book/9780415289793)
+[3] Sheldrake, R. (2009). [*Morphic Resonance: The Nature of Formative Causation*](https://www.sheldrake.org/books-by-rupert-sheldrake/morphic-resonance). Park Street Press.
 
-[5] Wheeler, J. A. (1990). *Information, Physics, Quantum: The Search for Links*. In *Complexity, Entropy, and the Physics of Information*. Addison-Wesley. [Link](https://archive.org/details/complexityentrop00zure)
+[4] Bohm, D. (1980). [*Wholeness and the Implicate Order*](https://www.routledge.com/Wholeness-and-the-Implicate-Order/Bohm/p/book/9780415289793). Routledge.
 
-[6] QNFO Research Network. (2024). *Autaxys and the Generative Basis of Reality*. Retrieved from [https://qnfo.org](https://qnfo.org)
+[5] Wheeler, J. A. (1990). [*Information, Physics, Quantum: The Search for Links*](https://archive.org/details/complexityentrop00zure). In *Complexity, Entropy, and the Physics of Information*. Addison-Wesley.
+
+[6] QNFO Research Network. (2024). [*Autaxys and the Generative Basis of Reality*](https://qnfo.org). QNFO.org.
 
 
 ---
