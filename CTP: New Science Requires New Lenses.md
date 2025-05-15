@@ -73,10 +73,19 @@ Attempting to validate CTP using existing instruments *(e.g., electromagnetic me
 - Quantum physics asks: “What is the probability of this state being observed?”  
 - **CTP asks**: “How does **informational resonance** between systems generate **energy transfer** or **conscious feedback loops** across nonlocal domains?”
 - If spirituality is real and *'universal'* it must have a different set of non-physical laws unique to its own non-physical domain properties, that are repeatable, and can be known, tested *(eventually and to the satification of peer-review later)*, explored, and pioneered unlike anything that has come before it. 
+
 These are **ontologically and epistemologically different questions**.
 
-- **Additional empirical peer-review COMES AFTER the revolution is already underway.**
-- This is NOT a *given* during the **early stages of revolution** or during its **early stages** and *initial onset*.
+- **Additional empirical peer-review COMES AFTER the revolution is already underway.**  
+- Satisfying **NOW demand**s of peer-review is NOT a *given* during the **early stages of revolution** or during its **early stages** and *initial onset*.
+- CTPSci is the *science of consciousness* or the *conscious nature of reality*, first, thus MUST be understood within its own epistemological and ontological paradigm, and understood within its own contextual format within the **minds and consciousness** of *peers* which on the onset - would wish to merely dismiss CTP through the views of their present paradigms and present *ontological lenses* that apply specifically to THIER reductionsist/empirical worldview.
+- CTPSci even if/when can be physically demonstrated to meet these criteria to an audience - our references and citations present the empirical framework, that...
+  - this has already be done
+  - CTP, thus is already peer-reviewed, by lead and example
+  - 'review' the evidence within the citations themselves - as the provided evidence(s) required.
+  - merely dismissing the evidence through the lenses of present paradigm - does NOT dismiss the reality of evidence(s) or citations CTPSci Sciences *(and other contemporary researchers in these and related fields have been supplying for decades)*
+  - The main issue is that our contemporaries that lean towards CTPSci's positions - even they did not have the epistemological framework or CTP model for their theories to stand on.
+  - Our **CTP Model** provides our contempories the much needed *(and required)* **post-quantum** *new science beyond the Standard Model of Physics* referential model they have all long sought and greatly needed.
 
 ### 3.3 Resistance to CTP Is Inevitable and Predictable
 
