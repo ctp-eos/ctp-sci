@@ -80,8 +80,8 @@ These are **ontologically and epistemologically different questions**.
 - Satisfying **NOW demand**s of peer-review is NOT a *given* during the **early stages of revolution** or during its **early stages** and *initial onset*.
 - CTPSci is the *science of consciousness* or the *conscious nature of reality*, first, thus MUST be understood within its own epistemological and ontological paradigm, and understood within its own contextual format within the **minds and consciousness** of *peers* which on the onset - would wish to merely dismiss CTP through the views of their present paradigms and present *ontological lenses* that apply specifically to THIER reductionsist/empirical worldview.
 - CTPSci even if/when can be physically demonstrated to meet these criteria to an audience - our references and citations present the empirical framework, that...
-  - This has already be done.
-  - Our contempories have been publishing articles leading towards the emergence of CTP Energy for many, many decades now.
+  - This work has already be done *(several of 1000s of times over these many decades).
+  - Our contempories have been publishing articles leading towards the emergence of **CTP Energy** for several decades now.
   - CTP, thus is already peer-reviewed, by lead and by example.
   - 'Peer-review' - on oppositional terms should review the evidence within the citations themselves - as the provided evidence(s) required.
   - Merely dismissing the evidence through the lenses and worldview(s) of present **materialistic reductionist paradigm** - does NOT dismiss the reality of evidence(s) or citations CTPSci Sciences *(and other contemporary researchers in these and related fields have been supplying for decades)* provides as **witness**.
