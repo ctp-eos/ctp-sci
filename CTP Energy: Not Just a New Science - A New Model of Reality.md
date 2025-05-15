@@ -1,4 +1,4 @@
-# CTP Energy Science: Not Just a New Non-Physical Science—A Completely New Postquantum Epistemological Model of Reality
+# CTPSci: Not Just a New Non-Physical Science—A Completely New Postquantum Epistemological Model of Reality
 
 ## Introduction: The Limits of the Known
 
