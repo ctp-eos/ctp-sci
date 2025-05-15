@@ -21,7 +21,7 @@ These structures:
 
 In this way, **incarnation is a coupling event**: a non-physical C-body entangles with a biological system, forming a temporary material expression. Upon biological death, the C-body detaches and re-coheres *remains C-coherent or Conscious coherent with itself)* within the larger C-domain - and is eventually *reintegrated* with a larger C-energy Entity or CE Entity. 
 
-This is also expressed as a larger CE Group *(or C-energy Group)* others widely refer to as a *Higher Self* - or larger conglomeration or group of other C-energy Units comprised of additional CE Entities *spun off* from the original *Higher Self*. At this higher level/higher domain of consciousness is in fact a form of a non-terrestrial Higher Intelligence *(contained within itself capabable of interfacing with even higher levels of C-domain consciousness and other CE Groups also within the C-domain)*
+This is also expressed as a larger CE Group *(or C-energy Group)* others widely refer to as a *Higher Self* - or larger conglomeration or group of other C-energy Units comprised of additional CE Entities *spun off* from the original *Higher Self*. At this higher level/higher domain of consciousness is in fact a form of a non-terrestrial Higher Intelligence *(contained within itself - capabable of interfacing with even higher levels of C-domain consciousness and other CE Groups also within the C-domain.)*
 
 ---
 
