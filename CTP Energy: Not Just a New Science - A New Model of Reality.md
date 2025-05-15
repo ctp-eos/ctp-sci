@@ -34,7 +34,7 @@ At its core, CTP Energy Science is built on new central axioms:
   
 ## Section III: CTP as Epistemology — Not Just New Physics, but Knowing: Accounting for New Forces and the Abstract CTP Reality Layer (C-Domain)
 
-CTP Energy Science introduces a *new epistemological mode*—a way of structuring human knowledge that transcends third-party empirical reductionism.
+CTP Energy Science *(CTPSci or the CTPSci Sciences)* introduces a *new epistemological mode(l)* — a way of structuring human knowledge that transcends third-party empirical reductionism while also offering a new reality **ontological framework**.
 
 This epistemology acknowledges:
 
@@ -42,7 +42,7 @@ This epistemology acknowledges:
 - **Nonlocal causality**: Information and influence can transcend spatial separation[^14]  
 - **Biofield coherence**: Biological systems can synchronize with information fields in ways that challenge thermodynamic entropy and classical information theory[^15]
 - **Two New Fundamental Forces**: Non-physical C-energy and T-energy respectively, whereas T-energy *connects* the non-physical C to the physical P.
--  The CTP Model provides this postquantum framework or the long-sought after 'new science beyond the Standard Model, whereas that it is NOT just a matter of *new physics* that is required, but must, however, also include a completely NEW post-quantum/non-physical epistemological framework while also offering and anteing up a **new paradigm** with it as the same.
+-  The **CTP Model** provides this postquantum framework or the long-sought after 'new science beyond the Standard Model, whereas that it is NOT just a matter of *new physics* that is required, but must, however, also include a completely NEW post-quantum/non-physical epistemological framework while also offering and anteing up a **new paradigm** with it as the same.
 
 In this model, scientific method is expanded—not discarded—to include **subjective-verifiable interface phenomena**, such as remote sensing, intuitive diagnostics, energy healing, and interspecies communication[^16].
 
@@ -54,7 +54,7 @@ Many fields have hinted at CTP principles without unification:
 - **Biofield healing** shows modulation of human physiology through invisible fields[^18]  
 - **Backster's Primary Perception** experiments illustrate emotional signaling between humans and plants with no delay or conventional medium[^8]
 
-CTP Science doesn't dismiss these as outliers—it **systematizes** them into a coherent framework of postquantum bioenergetics. It provides the mathematical, theoretical, and philosophical *glue* that connects these seemingly disparate phenomena.
+CTP Energy Science (CTPSci) doesn't dismiss these as outliers—it **systematizes** them into a coherent framework of postquantum bioenergetics. It provides the conceptual, relational, mathematical, theoretical, and philosophical *glue* that connects these seemingly disparate phenomena.
 
 ## Section V: Technological and Scientific Implications
 
@@ -71,7 +71,7 @@ CTP Energy Science opens the door to a new class of technologies:
 
 CTP Energy Science represents not just a new *branch* of science, but a **new scaffold for knowing**—one that integrates first-person experience, biofield interaction, and consciousness as co-fundamentals of reality.
 
-In a postquantum world, science must be redefined. The next breakthroughs won’t come from particle colliders or telescopes alone—but from those brave enough to look inward, engage the subtle, and accept that reality is not only physical—it is participatory, field-driven, and profoundly alive.
+In a postquantum world, science must be redefined. The next breakthroughs won’t come from particle colliders or telescopes alone—but from those **brave enough to look inward**, engage the subtle, and accept that reality is not only physical—it is participatory, field-driven, and profoundly alive.
 
 ---
 
