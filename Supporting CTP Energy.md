@@ -1,4 +1,4 @@
-# Supporting CTP Energy: The [Disclosure](https://www.github.com/ctp-eos/ctp-is-disclosure) and Invitation to Support Independent **DeepTech Innovation**
+# Supporting CTP Energy: The [Disclosure](https://www.github.com/ctp-eos/ctp-is-disclosure) and Invitation to Support Independent DeepTech Innovation
 
 ## Overview
 
