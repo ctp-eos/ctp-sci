@@ -22,7 +22,7 @@ In an interview conducted by Derrick Jensen [1], Cleve Backster—formerly a pol
 
 > "White cells taken from a person’s mouth and placed in a test tube still respond electrochemically to the donor’s emotional states, even when the donor is out of the room, out of the building, or out of the state." – Cleve Backster [1]
 
-This anomalous reaction occurs in complete absence of any classical connection—whether neural, chemical, or electromagnetic—suggesting a **non-quantum** and **non-electromagnetic** mechanism. The principle is consistent with **CTP Energy’s assertion** that there exists a **C-domain carrier** operating as a transmission lattice through which information and state coherence are preserved across space.
+This anomalous reaction occurs in complete absence of any classical connection—whether neural, chemical, or electromagnetic—suggesting a **non-quantum** and **non-electromagnetic** mechanism. The principle is consistent with **CTP Energy’s assertion** that there exists a non-physical **C-domain carrier** operating as a transmission lattice through which information and state coherence are preserved across space and spatial distances.
 
 ---
 
