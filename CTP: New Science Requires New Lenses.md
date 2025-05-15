@@ -80,10 +80,11 @@ These are **ontologically and epistemologically different questions**.
 - Satisfying **NOW demand**s of peer-review is NOT a *given* during the **early stages of revolution** or during its **early stages** and *initial onset*.
 - CTPSci is the *science of consciousness* or the *conscious nature of reality*, first, thus MUST be understood within its own epistemological and ontological paradigm, and understood within its own contextual format within the **minds and consciousness** of *peers* which on the onset - would wish to merely dismiss CTP through the views of their present paradigms and present *ontological lenses* that apply specifically to THIER reductionsist/empirical worldview.
 - CTPSci even if/when can be physically demonstrated to meet these criteria to an audience - our references and citations present the empirical framework, that...
-  - this has already be done
-  - CTP, thus is already peer-reviewed, by lead and example
-  - 'review' the evidence within the citations themselves - as the provided evidence(s) required.
-  - merely dismissing the evidence through the lenses of present paradigm - does NOT dismiss the reality of evidence(s) or citations CTPSci Sciences *(and other contemporary researchers in these and related fields have been supplying for decades)*
+  - This has already be done.
+  - Our contempories have been publishing articles leading towards the emergence of CTP Energy for many, many decades now.
+  - CTP, thus is already peer-reviewed, by lead and by example.
+  - 'Peer-review' - on oppositional terms should review the evidence within the citations themselves - as the provided evidence(s) required.
+  - Merely dismissing the evidence through the lenses and worldview(s) of present **materialistic reductionist paradigm** - does NOT dismiss the reality of evidence(s) or citations CTPSci Sciences *(and other contemporary researchers in these and related fields have been supplying for decades)* provides as **witness**.
   - The main issue is that our contemporaries that lean towards CTPSci's positions - even they did not have the epistemological framework or CTP model for their theories to stand on.
   - Our **CTP Model** provides our contempories the much needed *(and required)* **post-quantum** new science ***beyond the Standard Model of Physics*** referential model they have all long sought and greatly needed.
   - Thus, new science ***beyond the Standard Model of Physics*** is ONLY possible via the inclusion and acceptance of two new *(albeit)* non-physical Fundamental Forces that the present Standard Model(s) do NOT presently account for as such models are ONLY P-energy or *physically based* reality-models, only.
