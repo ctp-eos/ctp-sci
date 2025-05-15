@@ -103,8 +103,10 @@ Future CTP Energy Systems and CTP Technologies will allow anyone to travel the C
 
 Replicating Drazen's conditions to fully experience C-domain presents a number of challenges. Future CTP Energy Systems will address these concerns and will provide a repeatable environment where ANYONE can and will be able to experiences the C-domain, directly, without the human Ego-Mind filter in the way. 
 
+- Training, study, and application of the CTPSci Sciences will/can lead anyone to better recall C-domain experiences incurred during one's sleep/rest cycle - as our C-body returns to C-domain each night.
 - Note: *(This is 'how' Drazen extracted direct information knowledge and observations while in C-domain - where we return to each night during the sleep cycle. Drazen's exceptional mind(s) and the make up of his C-body was/were able to recall this C-domain acculumated information is beyond the capacities of most individuals.)*
-- Training, study, and application of the CTPSci Sciences will/can lead anyone to better recall C-domain experiences incurred during one's sleep/rest cycle - as our C-body returns to C-domain each night. The issue is in the 'dual-boot' partition format our C-body is structured in within two seperate groups of C-energy Units our non-physical C-body is comprised of.
+- The issue is in that a human entity is much akin to a *'dual-boot'* partitioned Windows/Linux system and format(ted) where our non-physical C-body is structured in within two seperate groups of C-energy Units our non-physical C-body is comprised of.
+- We have two separate C/P minds responsible for governing actions/memories per each C/P-domain of concurrent existence(s).
 
 ---
 
