@@ -5,7 +5,9 @@
 
 ## Abstract
 
-Contemporary cosmology acknowledges a deeply mysterious composition of the universe: 74% dark energy, 22% dark matter, and only 4% visible, physical matter. These observations highlight a crisis in theoretical physics—a gap in understanding what fundamentally constitutes the universe. The CTP Energy Model provides a coherent and explanatory framework that unifies consciousness, time structures, and physical energy phenomena into a three-tiered energy schema: **C-Energy**, **T-Energy**, and **P-Energy**. This article reinterprets current astrophysical data through this model, offering a structured solution to unresolved cosmological phenomena and presenting a holistic, post-quantum theory of energy and matter.
+Contemporary cosmology acknowledges a deeply mysterious composition of the universe: 74% dark energy, 22% dark matter, and only 4% visible, physical matter. These observations highlight a crisis in theoretical physics—a gap in understanding what fundamentally constitutes the universe. The CTP Energy Model provides a coherent and explanatory framework that unifies consciousness, time structures, and physical energy phenomena into a three-tiered energy schema: **C-Energy**, **T-Energy**, and **P-Energy**. 
+
+This article reinterprets current astrophysical data through this model, offering a structured solution to unresolved cosmological phenomena and presenting a holistic, post-quantum theory of energy and matter.
 
 ---
 
