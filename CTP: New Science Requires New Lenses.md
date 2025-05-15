@@ -85,7 +85,9 @@ These are **ontologically and epistemologically different questions**.
   - 'review' the evidence within the citations themselves - as the provided evidence(s) required.
   - merely dismissing the evidence through the lenses of present paradigm - does NOT dismiss the reality of evidence(s) or citations CTPSci Sciences *(and other contemporary researchers in these and related fields have been supplying for decades)*
   - The main issue is that our contemporaries that lean towards CTPSci's positions - even they did not have the epistemological framework or CTP model for their theories to stand on.
-  - Our **CTP Model** provides our contempories the much needed *(and required)* **post-quantum** *new science beyond the Standard Model of Physics* referential model they have all long sought and greatly needed.
+  - Our **CTP Model** provides our contempories the much needed *(and required)* **post-quantum** new science ***beyond the Standard Model of Physics*** referential model they have all long sought and greatly needed.
+  - Thus, new science ***beyond the Standard Model of Physics*** is ONLY possible via the inclusion and acceptance of two new *(albeit)* non-physical Fundamental Forces that the present Standard Model(s) do NOT presently account for as such models are ONLY P-energy or *physically based* reality-models, only.
+  - This should be rather elementary *(conclusions and sound logical reasoning)* even for today's physicists to comprehend. 
 
 ### 3.3 Resistance to CTP Is Inevitable and Predictable
 
