@@ -36,7 +36,7 @@ Based on observational data from WMAP, Planck, and Type Ia supernova surveys, th
 </div>
 
 Yet despite knowing these proportions, modern science has **no direct empirical understanding** of the two dominant components.
-- - The **CTP Model** fits better than any other contemporary explanation available to date.
+- The **CTP Model** fits and summarizes better than any other contemporary explanation available to date.
 
 ---
 
