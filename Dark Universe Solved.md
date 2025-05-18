@@ -36,7 +36,7 @@ This phenomenon aligns with current astrophysical findings:
 - **It does not interact with normal matter electromagnetically.**
 - **Its only observable effect is through gravitation.**
 
-➡️ In the CTP model, this is because **CeFR boundaries prevent all interactions except gravity**, explained by the **C-energy Realities Exclusionary Principle** *(including principles of gravity as a non-gauge force)*.
+➡️ In the CTP model, this is because **CeFR boundaries prevent all interactions except gravity**, explained by the **C-energy Realities Exclusionary Principle** *(including/excluding principles of gravity as a non-gauge force)*.
 
 ---
 
