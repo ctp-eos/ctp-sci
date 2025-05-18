@@ -105,6 +105,7 @@ Instead, science must:
 - Recognize **energy encoding as the basis of matter**.
 - Accept **consciousness as a formative force**.
 - Embrace **nonlocal, frequency-based cosmology**.
+- C-energy and T-energy and their respective Units introduce two new non-physical Fundamental Forces/force carriers.
 
 ---
 
