@@ -84,7 +84,7 @@ This rule implies a **multilayered cosmos**, where **frequency-coded realities c
 
 ## 🧩 Scientific Implications: A New Cosmology
 
-By replacing the outdated notion of “missing matter” with **frequency-exclusionary consciousness energy dynamics**, CTP Energy Science transforms cosmology into a **fully encoded, information-based field** — where what we call "reality" is merely **what our P-domain reads from C-energy**.
+By replacing the outdated notion of “missing matter” with **frequency-exclusionary consciousness energy dynamics**, CTP Energy Science transforms cosmology into a **fully encoded, information-based field** — where what we call "reality" is merely **what our physical P-domain reads from C-energy via the T-energy responsible for 'coding' our universe, only.**.
 
 This has profound consequences:
 - Dark Matter is **not to be discovered** — it’s already here, in another layer.
