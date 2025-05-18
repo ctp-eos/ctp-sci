@@ -71,7 +71,7 @@ Hence:
 
 Rule 7 of CTP Energy Science addresses **inter-domain gravitational effects**. It states:
 
-> **T-energy can exert gravitic influence across CeFR domains, but no other force can pass between realities.**
+> **T-energy can exert gravitic influence across CeFR domains, but no other force can pass between realities *(as gravity is NOT a traditional or 'gauge force' as behaviors and traits exhibited by the other three fundamentals EM, Wf, Sf)*
 
 This elegantly explains why **Dark Matter affects our gravity** but:
 - Cannot be touched,
