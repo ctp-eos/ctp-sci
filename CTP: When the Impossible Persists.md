@@ -1,4 +1,4 @@
-# When the Impossible Persists: Laying the Groundwork for CTP Energy Science  
+# CTP: When the Impossible Persists: Laying the Groundwork for CTP Energy Science  
 
 ---
 
