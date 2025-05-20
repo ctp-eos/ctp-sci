@@ -94,12 +94,12 @@ Meta-analyses of psi phenomena have shown small but statistically significant re
 
 CTP Energy Cycle is the relational model required to solve the Unified Field Theory or the CTP Unity Field. It is not based on a purely mathematical framework but an overall and encompassing relational model—CTP and CTP Energy.
 
-> For the past 100 years many scientists, including Einstein, have worked on deriving and finding a Unified Field Theory, which is a physical theory that proposes to unify the four known forces by a simple set of general laws or formulas. These forces control all of the observed interactions of physical matter.
-> 
-> This underlying unity is the CTP Energy Cycle™. All scientists to date have been missing two non-physical energies: C-energy and T-energy, which are necessary to develop the Unified Field Theory.
-> 
-> The creation of atoms and other physical forces from C-energy via T-energy, whose Units are plugged into both physical and non-physical sides and in effect create all atoms and physical realities, is the missing link in the Unified Field Theory. All forces, energies, and their interactions—not just the four considered above to date—are created by C- and T-energies via the CTP Energy Cycle™.
-> 
+> For past 100 years many scientists, including Einstein, have worked on deriving-finding a Unified Field Theory which is a physical theory the proposes to unify the four known forces by a simple set of general laws or formulas.  These forces control all of the observed interactions of one physical matter. 
+>  
+> This underlying unity is the CTP Energy Cycle™.  All scientists to date have been missing two non-physical energies C-energy and T-energy in order to be able to develop the Unified Field Theory. 
+>  
+> The creation of atoms and other physical forces from C-Energy via T-energy whose Units are plugged to both physical and non-physical sides and in effect create all atoms and physical realities is the missing link in the Unified Field Theory.  All forces, energies and their interactions, and not just four considered above to date are created by C and T-energies via the CTP Energy Cycle™. 
+>
 > — *Drazen Premate*
 
 ---
