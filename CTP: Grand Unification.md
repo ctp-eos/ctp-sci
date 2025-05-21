@@ -88,9 +88,10 @@ The **CT∞>PE=mc²** model reinterprets these:
 
 - **Dark Energy = C-energy**: The undetected non-physical conscious substrate  
 - **Dark Matter = T-energy**: Translational carriers with structural influence
-- - but no mass carried from 'bleed through' CTP inter-reality-effects. 
+- - but no mass carried from 'bleed-through' CTP inter-reality-effects. 
 
-This resolves the observational gap without invoking hidden baryonic matter [5].
+This resolves the observational gap without invoking hidden baryonic matter 
+- or need for new axions, WIMPS, or new quantum-particles. [5].
 
 ---
 
