@@ -63,8 +63,8 @@ This explains why:
 
 Conventional engines require proportionally massive energy sources. Yet, numerous UAP sightings document:
 
-- **[The '5 Observables' do not 'fit' conventional physics](https://fiveobservables.com)
-- **Tiny craft producing vast energetic distortions**  
+- [**The '5 Observables' do not 'fit' conventional physics**](https://fiveobservables.com)
+- **Tiny CTP craft producing vast energetic distortions**  
 - **Field-based movement without visible thrust** [3].
 
 Using **CT∞ > PE = mc²**:
