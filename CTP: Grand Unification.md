@@ -9,7 +9,7 @@ Einstein's *E=mc²* describes the energy content of mass but does not account fo
 
 ### I. Introduction
 
-While modern physics describes energy with precision, persistent mysteries—such as dark matter and UAP propulsion—remain unresolved. **CT∞ > PE = mc²**, proposed within **CTP Conscious Translational Physics**, recontextualizes Einstein’s work by introducing a layered model in which physical energy is a translated byproduct of non-physical energy fields.
+While modern physics describes energy with precision, persistent mysteries—such as dark matter and UAP propulsion—remain unresolved. **CT∞>PE=mc²**, proposed within **CTP Conscious Translational Physics**, recontextualizes Einstein’s work by introducing a layered model in which physical energy is a translated byproduct of non-physical energy fields.
 
 ---
 
@@ -24,11 +24,11 @@ Einstein's equation remains valid for material systems but ignores these deeper 
 
 ---
 
-### III. The CTP Energy Hierarchy: CT∞ > PE = mc²
+### III. The CTP Energy Hierarchy: CT∞>PE=mc²
 
 This new formulation posits:
 
-**CT∞ > PE = mc²**
+**CT∞>PE=mc²**
 
 - **CT∞**: Infinite potential energy in the non-physical C-domain *
 -- *(C-energy times T-energy in Nth additional C-energy Frequency Ranges (CeFR) of C-domain/reality-bandwidths)*  
@@ -83,7 +83,7 @@ Standard cosmology posits:
 - ~27% is **dark matter**  
 - Only ~5% is **visible matter**
 
-The **CT∞ > PE = mc²** model reinterprets these:
+The **CT∞>PE=mc²** model reinterprets these:
 
 - **Dark Energy = C-energy**: The undetected conscious substrate  
 - **Dark Matter = T-energy**: Translational carriers with structural influence but no mass  
@@ -111,7 +111,7 @@ Phenomena such as:
 
 ### VIII. Toward a New Physics
 
-**CT∞ > PE = mc²** suggests:
+**CT∞>PE=mc²** suggests:
 
 - Energy anomalies are explainable through higher-order energetic strata  
 - Gravity is programmable, not geometric  
@@ -124,7 +124,7 @@ These propositions are not metaphysical speculations but **working hypotheses** 
 
 ### Conclusion
 
-Einstein’s equation describes the visible. **CT∞ > PE = mc²** reveals the **invisible order**: a vast energetic domain, coded in consciousness and translated into spacetime via T-energy. The physical universe is not primary—it is a **shadow cast by a deeper, intelligent continuum**.
+Einstein’s equation describes the visible. **CT∞>PE=mc²** reveals the **invisible order**: a vast energetic domain, coded in consciousness and translated into spacetime via T-energy. The physical universe is not primary—it is a **shadow cast by a deeper, intelligent continuum**.
 
 ---
 
