@@ -76,18 +76,19 @@ This aligns with recovered UAP research indicating exotic materials and non-loca
 
 ---
 
-### VI. Solving the Dark Energy and Dark Matter Mystery
+### VI. [Solving the Dark Energy and Dark Matter Mystery](https://github.com/ctp-eos/ctp-sci/blob/main/Dark%20Universe%20Solved.md)
 
-Standard cosmology posits:
+**Standard cosmology vs CTP Model posits:**
 
-- ~68% of the universe is **dark energy**  
-- ~27% is **dark matter**  
-- Only ~5% is **visible matter**
+- ~68% of the universe is **dark energy**: non-physical C-energy  
+- ~27% is **dark matter**: T-energy coding different physical or P-energy *(in adjacent C-energy Frequency Ranges of C-domain)*  
+- Only ~5% is **visible matter**: or P-energy. 'CTP' accounts for the distribution framework.
 
 The **CT∞>PE=mc²** model reinterprets these:
 
-- **Dark Energy = C-energy**: The undetected conscious substrate  
-- **Dark Matter = T-energy**: Translational carriers with structural influence but no mass  
+- **Dark Energy = C-energy**: The undetected non-physical conscious substrate  
+- **Dark Matter = T-energy**: Translational carriers with structural influence
+- - but no mass carried from 'bleed through' CTP inter-reality-effects. 
 
 This resolves the observational gap without invoking hidden baryonic matter [5].
 
