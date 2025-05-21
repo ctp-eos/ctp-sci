@@ -1,8 +1,8 @@
-# CT∞ > PE = mc² – A CTP Conscious Translational Physics Grand Unification Principle
-## Building on Einstein's incomplate works.
+# CT∞>PE=mc² – A CTP Conscious Translational Physics Grand Unification Principle
+## Building on Einstein's incomplete works.
 
 ### Abstract  
-Einstein's *E = mc²* describes the energy content of mass but does not account for the deeper non-physical substrates of the universe—what **CTP Conscious Translational Physics** calls the **C-domain**. This article introduces the **CT∞ > PE = mc²** formulation, positing that Conscious and Translational Energy (C-energy and T-energy) vastly exceed the physical energy (PE) described by Einstein. This model resolves longstanding anomalies including dark matter, dark energy, and UAP propulsion mechanics.
+Einstein's *E=mc²* describes the energy content of mass but does not account for the deeper non-physical substrates of the universe—what **CTP Conscious Translational Physics** calls the **C-domain**. This article introduces the **CT∞>PE=mc²** formulation, positing that Conscious and Translational Energy *(non-physical C-energy and T-energy)* vastly exceed the physical energy (PE) described by Einstein. This model resolves longstanding anomalies including dark matter, dark energy, and UAP propulsion or C-domain Mechanics.
 
 ---
 
