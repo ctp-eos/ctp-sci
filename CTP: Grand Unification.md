@@ -1,4 +1,5 @@
-# CT∞>PE=mc² – A CTP Conscious Translational Physics Grand Unification Principle
+# CT∞>PE=mc²  
+A CTP Conscious Translational Physics Grand Unification Principle
 ## Building on Einstein's incomplete works.
 
 ### Abstract  
