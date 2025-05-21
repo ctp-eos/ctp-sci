@@ -9,7 +9,7 @@ Einstein's *E=mc²* describes the energy content of mass but does not account fo
 
 ### I. Introduction
 
-While modern physics describes energy with precision, persistent mysteries—such as dark matter and UAP propulsion—remain unresolved. **CT∞>PE=mc²**, proposed within **CTP Conscious Translational Physics**, recontextualizes Einstein’s work by introducing a layered model in which physical energy is a translated byproduct of non-physical energy fields.
+While modern physics describes energy with precision, persistent mysteries—such as dark matter and UAP propulsion—remain unresolved. **CT∞>PE=mc²**, proposed within **CTP Conscious Translational Physics**, recontextualizes Einstein’s work by introducing a layered model in which physical energy is a translated byproduct of higher order/higher domain non-physical energy fields.
 
 ---
 
