@@ -67,7 +67,7 @@ Conventional engines require proportionally massive energy sources. Yet, numerou
 - [**Tiny CTP craft producing vast energetic distortions**](https://www.youtube.com/watch?v=HlYwktOj75A)  
 - **Field-based movement without visible thrust** [3].
 
-Using **CT∞ > PE = mc²**:
+Using **CT∞>PE=mc²**:
 
 - These CTP craft access **C/T-energy reservoirs within the C-domain**  
 - Their propulsion derives from **T-energy-mediated retranslation**, not chemical or nuclear reactions  
