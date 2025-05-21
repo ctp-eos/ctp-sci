@@ -34,7 +34,7 @@ This new formulation posits:
 -- *(C-energy times T-energy in Nth additional C-energy Frequency Ranges (CeFR) of C-domain/reality-bandwidths)*  
 -- is infinitely greater than...     
 - **PE**: Physical energy as defined by Einstein *(as evidence(d) in/by disproportional distribution of observable matter)*  
-- - *(CTP Model also accounts for matter/anti-matter (a)symmetry issues still yet unresolved by traditional physics)*
+  - *(CTP Model also accounts for matter/anti-matter (a)symmetry issues still yet unresolved by traditional physics)*
 
 This relationship suggests:
 
