@@ -30,7 +30,7 @@ This new formulation posits:
 
 **CT∞>PE=mc²**
 
-- **CT∞**: Infinite potential energy in the non-physical C-domain *
+- **CT∞**: Infinite potential energy in the non-physical C-domain   
 -- *(C-energy times T-energy in Nth additional C-energy Frequency Ranges (CeFR) of C-domain/reality-bandwidths)*  
 - **PE**: Physical energy as defined by Einstein  
 
