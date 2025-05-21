@@ -48,7 +48,7 @@ These two energies form the substrate for all matter-energy interactions, includ
 The *CTP Energy Cycle™* describes a recursive and relational loop where:
 
 1. **C-energy** serves as the root field of potentiality and intelligent design—existing outside physical time and space.  
-2. **T-energy** acts as the translational layer or *'coding mechanism'*, enabling C-energy to manifest within the constraints of physicality.  
+2. **T-energy** acts as the translational layer or *'coding mechanism'*, enabling C-energy to manifest within the constraints of physicality. T-energy possesses dualistic (non)physical properties required to connect C/P-domains.  
 3. **P-energy (Physical energy)** arises as a derivative manifestation—atoms, forces, particles, and observable events.
 
 These elements form a **CTP Unit**: a relational system that plugs into both physical and non-physical realms. Unlike particle-based reductionism, this model is holistic and complete. The physical universe is composed of countless interlinked CTP-Energy Units.
