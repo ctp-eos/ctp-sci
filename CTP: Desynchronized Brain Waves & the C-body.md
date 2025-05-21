@@ -2,9 +2,9 @@
 
 ### *A CTP Conscious Translational Physics Analysis*
 
-**Author:** Resofactor
-**Institution:** CTP Energy Science Foundation
-**Date:** May 2025
+**Author:** Resofactor  
+**Institution:** CTP Energy Science Foundation  
+**Date:** May 2025  
 
 ---
 
