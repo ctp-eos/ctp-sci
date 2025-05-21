@@ -108,7 +108,7 @@ CTP Energy Cycle is the relational model required to solve the Unified Field The
 
 The *CTP Energy Cycle™* is not merely another theory—it is a **paradigm shift**. It recognizes the failures of physics to resolve its deepest contradictions and offers a model that not only unifies forces but integrates the full spectrum of reality: physical, informational, and conscious. In doing so, it completes the missing half of the Unified Field puzzle.
 
-As such, the *CTP Unity Field* should be considered a new foundational model for 21st-century science, capable of not only explaining but also engineering reality at its deepest levels. Future articles regarding **CTP Grand Unification** *(and its respective formula)* will come in the near future.
+As such, the *CTP Unity Field* should be considered a new foundational model for 21st-century science, capable of not only explaining but also engineering reality at its deepest levels. Future articles regarding [**CTP Grand Unification**](https://github.com/ctp-eos/ctp-sci/blob/main/CTP%3A%20Grand%20Unification.md) *(and its respective formula)* will come in the near future.
 
 ---
 
