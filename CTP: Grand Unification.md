@@ -32,8 +32,8 @@ This new formulation posits:
 
 - **CT∞**: Infinite potential energy in the non-physical C-domain   
 -- *(C-energy times T-energy in Nth additional C-energy Frequency Ranges (CeFR) of C-domain/reality-bandwidths)*  
--- is greater than...     
-- **PE**: Physical energy as defined by Einstein *(as evidence in disproportional distribution of observable matter)* 
+-- is infinitely greater than...     
+- **PE**: Physical energy as defined by Einstein *(as evidence(d) in/by disproportional distribution of observable matter)* 
 
 This relationship suggests:
 
