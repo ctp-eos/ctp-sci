@@ -122,18 +122,21 @@ This model is:
 
 ## Further Reading & Citations
 
-- CTP White Paper: *Nonlocal Ontology and C-Energy Science* (2025)  
-- Backster, Cleve. *Primary Perception: Biocommunication with Plants, Living Foods, and Human Cells*  
-- Sheldrake, Rupert. *A New Science of Life*  
-- Puthoff, Harold. *Advanced Space Propulsion Based on Vacuum (Spacetime Metric) Engineering*  
-- Institute for Noetic Sciences – Nonlocal Consciousness Research  
-- U.S. DoD UAP Reports: Acceleration and Maneuver Data (2019–2023)  
-- [https://lnkd.in/eA7gDYbe](https://lnkd.in/eA7gDYbe)
+- **CTP White Paper:** *Nonlocal Ontology and C-Energy Science* (2025)  
+  *(Proprietary publication – no public link available)*
+
+- **Backster, Cleve.** [*Primary Perception: Biocommunication with Plants, Living Foods, and Human Cells*](https://www.amazon.com/dp/0966435435?tag=ctpenergy03-20)
+
+- **Sheldrake, Rupert.** [*A New Science of Life*](https://www.amazon.com/dp/1645020826?tag=ctpenergy03-20)
+
+- **Puthoff, Harold.** [*Advanced Space Propulsion Based on Vacuum (Spacetime Metric) Engineering*](https://www.osti.gov/servlets/purl/20729935) *(OSTI.gov – U.S. Department of Energy)*
+
+- **Institute for Noetic Sciences –** [Nonlocal Consciousness Research](https://noetic.org/research/)
+
+- **U.S. DoD UAP Reports:** [Acceleration and Maneuver Data (2019–2023)](https://www.dni.gov/index.php/newsroom/reports-publications/reports-publications-2023/item/2341-2023-annual-report-on-unidentified-anomalous-phenomena)
 
 ---
 
 ## Tags
 
 `#CTPEnergy` `#CTPcraft` `#DisclosureScience` `#PostQuantum` `#Cdomain` `#OntologicalPhysics` `#NewScience`
-
-
