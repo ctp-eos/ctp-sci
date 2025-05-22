@@ -108,6 +108,101 @@ In the end, your life is not erased. It is **indexed, archived, and transmuted**
 
 ---
 
+1. Borjigin, J., Lee, U., Liu, T., Pal, D., Huff, S., Klarr, D., ... & Mashour, G. A. (2013). Surge of neurophysiological coherence and connectivity in the dying brain. *Proceedings of the National Academy of Sciences*, 110(35), 14432–14437. https://doi.org/10.1073/pnas.1308285110
+
+2. Parnia, S., Spearpoint, K., de Vos, G., Fenwick, P., Goldberg, D., Yang, J., ... & Schoenfeld, E. (2014). AWARE—AWAreness during REsuscitation—A prospective study. *Resuscitation*, 85(12), 1799–1805. https://doi.org/10.1016/j.resuscitation.2014.09.004
+
+3. Martial, C., Cassol, H., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2020). Near-death experiences as a probe to explore (disconnected) consciousness. *Trends in Cognitive Sciences*, 24(3), 173–183. https://doi.org/10.1016/j.tics.2019.12.020
+
+4. Klemenc-Ketis, Z., Kersnik, J., & Grmec, S. (2010). The effect of carbon dioxide on near-death experiences in out-of-hospital cardiac arrest survivors: a prospective observational study. *Critical Care*, 14(2), R56. https://doi.org/10.1186/cc8943
+
+5. Cassol, H., Martial, C., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2019). Lifting the veil on near-death experiences: Lessons from the past and implications for the future. *Consciousness and Cognition*, 76, 102845. https://doi.org/10.1016/j.concog.2019.102845
+
+6. Fischer, J. M., & Mitchell-Yellin, B. (2016). Near-death experiences: Heavenly insight or human illusion? *Oxford University Press*. https://doi.org/10.1093/acprof:oso/9780190466603.001.0001
+
+7. Van Lommel, P. (2001). Near-death experience in survivors of cardiac arrest: A prospective study in the Netherlands. *The Lancet*, 358(9298), 2039–2045. https://doi.org/10.1016/S0140-6736(01)07100-8
+
+8. Greyson, B. (2003). Incidence and correlates of near-death experiences in a cardiac care unit. *General Hospital Psychiatry*, 25(4), 269–276. https://doi.org/10.1016/S0163-8343(03)00042-2
+
+9. Mobbs, D., & Watt, C. (2011). There is nothing paranormal about near-death experiences: How neuroscience can explain seeing bright lights, meeting the dead, or being convinced you are one of them. *Trends in Cognitive Sciences*, 15(10), 447–449. https://doi.org/10.1016/j.tics.2011.07.010
+
+10. Greyson, B. (2000). Near-death experiences. In E. Cardeña, S. J. Lynn, & S. C. Krippner (Eds.), *Varieties of Anomalous Experience: Examining the Scientific Evidence* (pp. 315–352). American Psychological Association. https://doi.org/10.1037/10371-009
+
+---
+
+Here are the references from the sources provided, formatted in a **copy-paste ready Markdown-compatible scientific citation style** (APA format):
+
+---
+
+## 🧠 **Peer-Reviewed Studies and Scientific Articles**
+
+1. Borjigin, J., Lee, U., Liu, T., Pal, D., Huff, S., Klarr, D., ... & Mashour, G. A. (2013). Surge of neurophysiological coherence and connectivity in the dying brain. *Proceedings of the National Academy of Sciences*, 110(35), 14432–14437. https://doi.org/10.1073/pnas.1308285110
+
+2. Parnia, S., Spearpoint, K., de Vos, G., Fenwick, P., Goldberg, D., Yang, J., ... & Schoenfeld, E. (2014). AWARE—AWAreness during REsuscitation—A prospective study. *Resuscitation*, 85(12), 1799–1805. https://doi.org/10.1016/j.resuscitation.2014.09.004
+
+3. Martial, C., Cassol, H., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2020). Near-death experiences as a probe to explore (disconnected) consciousness. *Trends in Cognitive Sciences*, 24(3), 173–183. https://doi.org/10.1016/j.tics.2019.12.020
+
+4. Klemenc-Ketis, Z., Kersnik, J., & Grmec, S. (2010). The effect of carbon dioxide on near-death experiences in out-of-hospital cardiac arrest survivors: a prospective observational study. *Critical Care*, 14(2), R56. https://doi.org/10.1186/cc8943
+
+5. Cassol, H., Martial, C., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2019). Lifting the veil on near-death experiences: Lessons from the past and implications for the future. *Consciousness and Cognition*, 76, 102845. https://doi.org/10.1016/j.concog.2019.102845
+
+6. Fischer, J. M., & Mitchell-Yellin, B. (2016). Near-death experiences: Heavenly insight or human illusion? *Oxford University Press*. https://doi.org/10.1093/acprof:oso/9780190466603.001.0001
+
+7. Van Lommel, P. (2001). Near-death experience in survivors of cardiac arrest: A prospective study in the Netherlands. *The Lancet*, 358(9298), 2039–2045. https://doi.org/10.1016/S0140-6736(01)07100-8
+
+8. Greyson, B. (2003). Incidence and correlates of near-death experiences in a cardiac care unit. *General Hospital Psychiatry*, 25(4), 269–276. https://doi.org/10.1016/S0163-8343(03)00042-2
+
+9. Mobbs, D., & Watt, C. (2011). There is nothing paranormal about near-death experiences: How neuroscience can explain seeing bright lights, meeting the dead, or being convinced you are one of them. *Trends in Cognitive Sciences*, 15(10), 447–449. https://doi.org/10.1016/j.tics.2011.07.010
+
+10. Greyson, B. (2000). Near-death experiences. In E. Cardeña, S. J. Lynn, & S. C. Krippner (Eds.), *Varieties of Anomalous Experience: Examining the Scientific Evidence* (pp. 315–352). American Psychological Association. https://doi.org/10.1037/10371-009
+
+---
+
+## 📚 **Books**
+
+
+Alexander, E. (2012). [*Proof of Heaven: A Neurosurgeon’s Journey into the Afterlife*](https://www.amazon.com/dp/0749958790?tag=ctpenergy03-20). Simon & Schuster.
+
+Moorjani, A. (2012). [*Dying to Be Me: My Journey from Cancer, to Near Death, to True Healing*](https://www.amazon.com/dp/1401937535?tag=ctpenergy03-20). Hay House.
+
+Moody, R. A. (2015). [*Life After Life: The Investigation of a Phenomenon—Survival of Bodily Death*](https://www.amazon.com/dp/006242890X?tag=ctpenergy03-20). HarperOne.
+
+Eadie, B. J. (1992). [*Embraced by the Light*](https://www.amazon.com/dp/0553565915?tag=ctpenergy03-20). Bantam Books.
+
+Kagan, A. (2013). [*The Afterlife of Billy Fingers: How My Bad-Boy Brother Proved to Me There's Life After Death*](https://www.amazon.com/dp/1571746943?tag=ctpenergy03-20). Hampton Roads.
+
+Burke, J. (2015). [*Imagine Heaven: Near-Death Experiences, God's Promises, and the Exhilarating Future That Awaits You*](https://www.amazon.com/dp/0764219434?tag=ctpenergy03-20). Baker Books.
+
+Carter, C. (2010). [*Science and the Near-Death Experience: How Consciousness Survives Death*](https://www.amazon.com/dp/1594773564?tag=ctpenergy03-20). Inner Traditions.
+
+Choi, D. (2020). [*Mechanism of Consciousness During Life, Dream and After-Death*](https://www.amazon.com/dp/1592329722?tag=ctpenergy03-20). Lightning Source Inc.
+
+Hall, M. P. (1953). [*Death and After: Or the Continuity of Consciousness*](https://www.amazon.com/dp/1258001481?tag=ctpenergy03-20). Philosophical Research Society.
+
+Broughton, L. G. (2020). [*Soul Consciousness After Death*](https://www.amazon.com/dp/116448083X?tag=ctpenergy03-20). Kessinger Publishing.
+
+Fischer, J. M., & Mitchell-Yellin, B. (2016). [*Near-Death Experiences: Heavenly Insight or Human Illusion?*](https://www.amazon.com/dp/0190466609?tag=ctpenergy03-20). Oxford University Press.
+
+Holden, J. M., Greyson, B., & James, D. (2009). [*The Handbook of Near-Death Experiences: Thirty Years of Investigation*](https://www.amazon.com/dp/0313358648?tag=ctpenergy03-20). Praeger.
+
+van Lommel, P. (2010). [*Consciousness Beyond Life: The Science of the Near-Death Experience*](https://www.amazon.com/dp/0061777254?tag=ctpenergy03-20). HarperOne.
+
+Rivas, T., Dirven, A., & Smit, R. (2016). [*The Self Does Not Die: Verified Paranormal Phenomena from Near-Death Experiences*](https://www.amazon.com/dp/1937907201?tag=ctpenergy03-20). IANDS Publishing.
+
+Long, J., & Perry, P. (2010). [*Evidence of the Afterlife: The Science of Near-Death Experiences*](https://www.amazon.com/dp/0061452556?tag=ctpenergy03-20). HarperOne.
+
+Sabom, M. B. (1982). [*Recollections of Death: A Medical Investigation*](https://www.amazon.com/dp/0060674166?tag=ctpenergy03-20). Harper & Row.
+
+Greyson, B. (2021). [*After: A Doctor Explores What Near-Death Experiences Reveal About Life and Beyond*](https://www.amazon.com/dp/1250263033?tag=ctpenergy03-20). St. Martin’s Essentials.
+
+Fenwick, P., & Fenwick, E. (1996). [*The Truth in the Light: An Investigation of Over 300 Near-Death Experiences*](https://www.amazon.com/dp/014019558X?tag=ctpenergy03-20). Penguin Books.
+
+Ring, K. (1984). [*Heading Toward Omega: In Search of the Meaning of the Near-Death Experience*](https://www.amazon.com/dp/0688015941?tag=ctpenergy03-20). William Morrow.
+
+Ring, K., & Valarino, E. (1998). [*Lessons from the Light: What We Can Learn from the Near-Death Experience*](https://www.amazon.com/dp/1571741038?tag=ctpenergy03-20). Moment Point Press.
+
+---
+
 ### **Hashtags & Channels**
 
 \#CTPSci #HigherConsciousness #Cenergy #NewScience #LifeAfterDeath #NearDeathExperience #DeathTransition #EEGDiscovery #KeithKing #Resofactor #CTPEnergyScience
