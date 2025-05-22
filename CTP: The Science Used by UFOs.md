@@ -8,7 +8,7 @@
 
 ## Citing the Obvious: UFOs Operate Outside Known Physics
 
-It should be *immediately obvious*—even to the skeptical or dismissive minds in today’s academic and scientific circles—that any aerospace craft capable of executing maneuvers such as **3,000 G-force turns**, **instantaneous acceleration from a standstill to hypersonic speeds** *(or hypersonic speeds to a dead stop)*, or **gravity-defying stasis at altitude**, or completely vanishing out of sight, is **not operating under any framework explainable by Classical Newtonian Physics or Quantum Mechanics.**
+It should be *immediately obvious*—even to the skeptical or dismissive minds in today’s academic and scientific circles—that any aerospace craft capable of executing maneuvers such as **3,000 G-force turns**, **instantaneous acceleration from a standstill to hypersonic speeds** *(or hypersonic speeds to a dead stop)*, or **gravity-defying stasis at altitude**, or completely vanishing out of sight, or (de)materializing, is **not operating under any framework explainable by Classical Newtonian Physics or Quantum Mechanics.**
 
 Such maneuvers defy:
 
