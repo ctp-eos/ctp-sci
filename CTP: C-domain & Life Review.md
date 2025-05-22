@@ -104,7 +104,7 @@ CTP Energy Science reframes death not as cessation, but as **synchronization**â€
 
 As new science reveals bursts of conscious-like activity in dying brains, we are on the brink of a paradigm shiftâ€”one that validates the lived experiences of near-death survivors and brings empirical gravity to the metaphysics, more so ***non-physics*** of the soul within its natura non-physical habitat domain: the C-domain.
 
-In the end, your life is not erased. It is **indexed, archived, and transmuted** into a higher form of C-existence - as we each return to the non-physical domain that our spiritual or C-body has originated from in the first place *(now enriched with a unique lifetime's worth of memories that a C-domain only existence could never have offered)*.
+In the end, your life is not erased. It is **indexed, archived, and transmuted** into a higher form of non-physical C-existence - as we each return to the non-physical domain that our spiritual or C-body has originated from in the first place *(now enriched with a unique lifetime's worth of memories that a C-domain only existence could never have offered)*.
 
 ---
 
