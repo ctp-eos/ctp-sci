@@ -8,7 +8,9 @@
 
 As modern science inches closer to the frontier of death and dying, surprising data are validating what mystics, ancient traditions, and CTP Energy Science have long asserted: consciousness does not simply shut off when the physical body expires. Rather, consciousness undergoes a type of *transition*, not an extinction—a final phase of integration, remembrance, and elevation - back to its original non-physical format.
 
-Recent peer-reviewed neurological research has observed “consciousness-like” brain activity at the edge of physical death. But while mainstream interpretations are confined to neurons and gamma waves, CTP Energy Science offers a larger framework: these signals reflect the *activation of the Higher Mind*—the non-local aspect of our identity that governs our non-physical C-body housed in the C-domain, which processes our lifetime of experiences through the energy architecture of memory known as **C-energy Units** - non-quantum energy Units or akin to a type of ***spiritual atom***.
+Recent peer-reviewed neurological research has observed “consciousness-like” brain activity at the edge of physical death. 
+
+While mainstream interpretations are confined to neurons and gamma waves, CTP Energy Science offers a larger framework: these signals reflect the *activation of the Higher Mind*—the non-local aspect of our identity that governs our non-physical C-body housed in the C-domain, which processes our lifetime of experiences through the energy architecture of memory known as **C-energy Units** - non-quantum energy Units or akin to a type of ***spiritual atom***.
 
 Let us now dive into both the conventional findings and the profound reinterpretation made possible by CTP Energy Science.
 
