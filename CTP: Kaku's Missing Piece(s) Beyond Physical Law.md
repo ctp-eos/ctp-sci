@@ -7,7 +7,9 @@
 
 ## Introduction: The Crisis in Physics
 
-Contemporary physics—despite its mathematical elegance and empirical reach—faces a profound ontological and epistemological crisis. The Standard Model of particle physics and Einstein’s General Relativity, although independently successful, remain fundamentally incompatible at quantum and cosmological scales. Gravity remains the most significant known force not explained by quantum field theory. At the heart of this unresolved paradox lies a deeper issue: current science is limited to *physicalist* frameworks and material observables, leaving a “missing piece” that transcends classical and quantum mechanics alike.
+Contemporary physics—despite its mathematical elegance and empirical reach—faces a profound ontological and epistemological crisis. 
+
+The Standard Model of particle physics and Einstein’s General Relativity, although independently successful, remain fundamentally incompatible at quantum and cosmological scales. Gravity remains the most significant known force not explained by quantum field theory. At the heart of this unresolved paradox lies a deeper issue: current science is limited to *physicalist* frameworks and material observables, leaving a “missing piece” that transcends classical and quantum mechanics alike.
 
 CTP Energy Science introduces a new frontier: the **C-domain**, a non-physical energetic continuum that governs interactions not explainable by conventional physical law. This includes two interwoven energetic modalities: **C-energy**, associated with consciousness, intention, and nonlocal coherence; and **T-energy**, associated with transduction across spacetime and gravitational boundaries.
 
