@@ -39,11 +39,9 @@ UAP performance and interaction with space-time point to **real, observed violat
 
 In epistemology, novelty of source is not disqualification. In fact, **exclusivity is a form of evidence**.
 
-**CTP is Disclosure science.** It is information that—by its very nature—has not existed in known academic frameworks until now. That is the point.
+**CTP is Disclosure science.** It is information that—by its very nature—has not existed in known academic frameworks until now. That is the point. If CTP Energy Science was derived from known physics or metaphysics, it would already be accounted for. It is not.
 
-If CTP Energy Science was derived from known physics or metaphysics, it would already be accounted for. It is not.
-
-> *The fact that we are the sole stewards of this knowledge is not suspicious. It is expected.*
+> *The fact that we are the sole stewards of this knowledge is not suspicious. It is to be expected.*
 
 All **revolutionary science begins with an outlier.** That we are currently the only known proponents of a **multi-domain ontological physics** with **nonphysical force interaction** is not a detraction—it is **precisely what gives our science meaning and value**.
 
