@@ -51,7 +51,7 @@ All **revolutionary science begins with an outlier.** That we are currently the 
 
 ## Not Classical. Not Quantum. CTP.
 
-Refer to [this published thesis summary](https://lnkd.in/e4Py8kMJ) for foundational details on the **non-Classical, non-Quantum nature of CTPcraft**.
+Refer to [this published thesis summary]([https://lnkd.in/e4Py8kMJ](https://arxiv.org/abs/1212.0454) for foundational details on the **non-Classical, non-Quantum nature of CTPcraft**.
 
 We assert the existence of **two additional Fundamental Forces**, **nonphysical in nature**, that operate in tandem with—but outside of—the four known forces of the Standard Model:
 
