@@ -74,7 +74,7 @@ When new frameworks such as CTP are introduced, **the predictable rejection patt
 
 This is the very problem CTP addresses.
 
-Just as Einstein’s work was initially rejected for its non-intuitive treatment of time, just as quantum mechanics was dismissed for decades, so too is CTP *(for many years now)*—because it is not *just a new set of equations*—it is a **new model of reality**.
+Just as Einstein’s work was initially rejected for its non-intuitive treatment of time, just as quantum mechanics was dismissed for decades, so too is CTP *(for many years now)*—because it is not *just a new set of equations*— CTP is a **new model of reality**.
 
 ---
 
