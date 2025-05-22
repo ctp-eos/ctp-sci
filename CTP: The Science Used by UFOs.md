@@ -109,7 +109,7 @@ Without an energetic system capable of:
 
 But they *do* exist. Therefore, something is wrong with our physics *(more so - YOUR physics - not ours)*.
 
-CTP’s answer is the **CTP Ontological Framework**, which uniquely positions **Conscious Energy Interaction (C-Energy)** as a causal force in reality—not a byproduct of brain activity, but a **structural force** that interfaces with matter, time, and space.
+CTP’s answer is the **CTP Ontological Framework**, which uniquely positions **Conscious Energy Interaction (C-Energy)** as a causal force in reality—not a byproduct of brain activity, but a **structural force** that interfaces with matter, time, and space - via CTP.
 
 This model is:
 
