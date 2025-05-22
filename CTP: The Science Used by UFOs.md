@@ -92,7 +92,7 @@ If humanity is to ever understand how **UFOs/UAPs maneuver, appear, and vanish**
 
 Without these, no formulation of UFO technology—no reverse-engineering program, no aerospace research lab—will ever succeed.
 
-CTP is the first and only framework that **ontologically explains** the observed characteristics of UAPs [5 Observables](https://fiveobservables.com).
+CTP is the first and only framework that **ontologically explains** the observed characteristics of UAPs [(5 Observables)](https://fiveobservables.com).
 
 ---
 
