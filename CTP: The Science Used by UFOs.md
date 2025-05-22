@@ -31,7 +31,7 @@ Our reply to this demand is simple:
 
 **CTP Energy Science (CTPSci)** emerges precisely at this point of failure—where the known ontologies no longer suffice.
 
-UAP performance and interaction with space-time point to **real, observed violations of known physics**. Therefore, they constitute direct evidence for the necessity of **new ontological science models**, such as those found in the CTP Framework.
+UAP performance and interaction with space-time point to **real, observed violations of known physics**. Therefore, they constitute direct evidence for the necessity of **new ontological science models**, such as those found in the CTP and CTP Model Framework.
 
 ---
 
