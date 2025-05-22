@@ -62,6 +62,8 @@ There is no institution, university, or physics department on Earth currently pr
 
 **Only CTP is.**
 
+> "If our peers had CTP, we would already be traveling the cosmos!" - Resofactor"
+ 
 ---
 
 ## The Real Issue: Ontological Rejection *Is* the Evidence
