@@ -1,4 +1,4 @@
-**CTP Energy Science and the Missing Pieces Beyond Physical Law: A New Ontological Paradigm**
+## CTP Energy Science and the Missing Pieces Beyond Physical Law: A New Ontological Paradigm
 
 >*"The fundamental problem of cosmology is that the laws of physics as we know them break down at the instant of the Big Bang... here we have the centerpiece of the Universe itself, a missing piece beyond physical law." — [Michio Kaku](https://www.bbc.co.uk/science/horizon/2001/parallelunitrans.shtml)*
 
