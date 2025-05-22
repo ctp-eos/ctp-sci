@@ -42,7 +42,9 @@ During the process of physical death, the following occurs:
 
 ### **2. The 'Life Review' as a C-domain Memory Indexing Event**
 
-The so-called "life flashing before one's eyes" is, in CTP terms, a **C-domain indexing phenomenon**. The Higher Mind is not replaying your life for judgment or nostalgia. It is **scanning, evaluating, and integrating** every memory-stamped C-energy Unit from your physical experience. This is the metaphysical equivalent of finalizing a system backup before reinitializing your core identity for either spiritual reintegration, or further non-physical evolution.
+The so-called "life flashing before one's eyes" is, in CTP terms, a **C-domain indexing phenomenon**. 
+
+The Higher Mind is not merely *replaying* your life for judgment or nostalgia. It is **scanning, evaluating, and integrating** every memory-stamped C-energy Unit from your physical experience. This is the metaphysical equivalent of finalizing a system backup before reinitializing your core identity for either spiritual reintegration, or further non-physical evolution.
 
 ---
 
