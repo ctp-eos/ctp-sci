@@ -105,7 +105,7 @@ Without an energetic system capable of:
 - **Translocating via conscious alignment**  
 - **Disregarding spacetime continuity**
 
-...UFOs cannot exist.
+...[UFOs](https://duckduckgo.com/?q=ufos) cannot exist.
 
 But they *do* exist. Therefore, something is wrong with our physics *(more so - YOUR physics - not ours)*.
 
