@@ -179,5 +179,5 @@ Ring, K., & Valarino, E. (1998). [*Lessons from the Light: What We Can Learn fro
 
 ### **Hashtags & Channels**
 
-\#CTPSci #HigherConsciousness #Cenergy #NewScience #LifeAfterDeath #NearDeathExperience #DeathTransition #EEGDiscovery #KeithKing #Resofactor #CTPEnergyScience
+\#CTPSci #HigherConsciousness #Cenergy #NewScience #LifeAfterDeath #NearDeathExperience #DeathTransition #EEGDiscovery #Resofactor #CTPEnergyScience
 
