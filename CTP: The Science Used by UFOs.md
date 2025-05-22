@@ -131,7 +131,7 @@ This model is:
 
 - **Puthoff, Harold.** [*Advanced Space Propulsion Based on Vacuum (Spacetime Metric) Engineering*](https://www.osti.gov/servlets/purl/20729935) *(OSTI.gov – U.S. Department of Energy)*
 
-- **Institute for Noetic Sciences –** [Nonlocal Consciousness Research](https://noetic.org/research/)
+- **Institute for Noetic Sciences –** [Nonlocal Consciousness Research](https://noetic.org/)
 
 - **U.S. DoD UAP Reports:** [Acceleration and Maneuver Data (2019–2023)](https://www.dni.gov/index.php/newsroom/reports-publications/reports-publications-2023/item/2341-2023-annual-report-on-unidentified-anomalous-phenomena)
 
