@@ -102,7 +102,7 @@ What if death is not the end—but the full retrieval of the Self?
 
 CTP Energy Science reframes death not as cessation, but as **synchronization**—a final act of integration with the Higher Mind, where our identity, lessons, and essence are absorbed into the greater field of C-consciousness contained within the spiritual or non-physical C-body.
 
-As new science reveals bursts of conscious-like activity in dying brains, we are on the brink of a paradigm shift—one that validates the lived experiences of near-death survivors and brings empirical gravity to the metaphysics of the soul.
+As new science reveals bursts of conscious-like activity in dying brains, we are on the brink of a paradigm shift—one that validates the lived experiences of near-death survivors and brings empirical gravity to the metaphysics, more so ***non-physics*** of the soul within its natura non-physical habitat domain: the C-domain.
 
 In the end, your life is not erased. It is **indexed, archived, and transmuted** into a higher form of C-existence - as we each return to the non-physical domain that our spiritual or C-body has originated from in the first place *(now enriched with a unique lifetime's worth of memories that a C-domain only existence could never have offered)*.
 
@@ -110,25 +110,25 @@ In the end, your life is not erased. It is **indexed, archived, and transmuted**
 
 ## 🧠 **Peer-Reviewed Studies and Scientific Articles**
 
-1. Borjigin, J., Lee, U., Liu, T., Pal, D., Huff, S., Klarr, D., ... & Mashour, G. A. (2013). Surge of neurophysiological coherence and connectivity in the dying brain. *Proceedings of the National Academy of Sciences*, 110(35), 14432–14437. https://doi.org/10.1073/pnas.1308285110
+1. Borjigin, J., Lee, U., Liu, T., Pal, D., Huff, S., Klarr, D., ... & Mashour, G. A. (2013). Surge of neurophysiological coherence and connectivity in the dying brain. *Proceedings of the National Academy of Sciences*, 110(35), 14432–14437. (https://doi.org/10.1073/pnas.1308285110)
 
-2. Parnia, S., Spearpoint, K., de Vos, G., Fenwick, P., Goldberg, D., Yang, J., ... & Schoenfeld, E. (2014). AWARE—AWAreness during REsuscitation—A prospective study. *Resuscitation*, 85(12), 1799–1805. https://doi.org/10.1016/j.resuscitation.2014.09.004
+2. Parnia, S., Spearpoint, K., de Vos, G., Fenwick, P., Goldberg, D., Yang, J., ... & Schoenfeld, E. (2014). AWARE—AWAreness during REsuscitation—A prospective study. *Resuscitation*, 85(12), 1799–1805. (https://doi.org/10.1016/j.resuscitation.2014.09.004)
 
-3. Martial, C., Cassol, H., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2020). Near-death experiences as a probe to explore (disconnected) consciousness. *Trends in Cognitive Sciences*, 24(3), 173–183. https://doi.org/10.1016/j.tics.2019.12.020
+3. Martial, C., Cassol, H., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2020). Near-death experiences as a probe to explore (disconnected) consciousness. *Trends in Cognitive Sciences*, 24(3), 173–183. (https://doi.org/10.1016/j.tics.2019.12.020)
 
-4. Klemenc-Ketis, Z., Kersnik, J., & Grmec, S. (2010). The effect of carbon dioxide on near-death experiences in out-of-hospital cardiac arrest survivors: a prospective observational study. *Critical Care*, 14(2), R56. https://doi.org/10.1186/cc8943
+4. Klemenc-Ketis, Z., Kersnik, J., & Grmec, S. (2010). The effect of carbon dioxide on near-death experiences in out-of-hospital cardiac arrest survivors: a prospective observational study. *Critical Care*, 14(2), R56. (https://doi.org/10.1186/cc8943)
 
-5. Cassol, H., Martial, C., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2019). Lifting the veil on near-death experiences: Lessons from the past and implications for the future. *Consciousness and Cognition*, 76, 102845. https://doi.org/10.1016/j.concog.2019.102845
+5. Cassol, H., Martial, C., Charland-Verville, V., Pallavicini, C., & Laureys, S. (2019). Lifting the veil on near-death experiences: Lessons from the past and implications for the future. *Consciousness and Cognition*, 76, 102845. (https://doi.org/10.1016/j.concog.2019.102845)
 
-6. Fischer, J. M., & Mitchell-Yellin, B. (2016). Near-death experiences: Heavenly insight or human illusion? *Oxford University Press*. https://doi.org/10.1093/acprof:oso/9780190466603.001.0001
+6. Fischer, J. M., & Mitchell-Yellin, B. (2016). Near-death experiences: Heavenly insight or human illusion? *Oxford University Press*. (https://doi.org/10.1093/acprof:oso/9780190466603.001.0001)
 
-7. Van Lommel, P. (2001). Near-death experience in survivors of cardiac arrest: A prospective study in the Netherlands. *The Lancet*, 358(9298), 2039–2045. https://doi.org/10.1016/S0140-6736(01)07100-8
+7. Van Lommel, P. (2001). Near-death experience in survivors of cardiac arrest: A prospective study in the Netherlands. *The Lancet*, 358(9298), 2039–2045. (https://doi.org/10.1016/S0140-6736(01)07100-8)
 
-8. Greyson, B. (2003). Incidence and correlates of near-death experiences in a cardiac care unit. *General Hospital Psychiatry*, 25(4), 269–276. https://doi.org/10.1016/S0163-8343(03)00042-2
+8. Greyson, B. (2003). Incidence and correlates of near-death experiences in a cardiac care unit. *General Hospital Psychiatry*, 25(4), 269–276. (https://doi.org/10.1016/S0163-8343(03)00042-2)
 
-9. Mobbs, D., & Watt, C. (2011). There is nothing paranormal about near-death experiences: How neuroscience can explain seeing bright lights, meeting the dead, or being convinced you are one of them. *Trends in Cognitive Sciences*, 15(10), 447–449. https://doi.org/10.1016/j.tics.2011.07.010
+9. Mobbs, D., & Watt, C. (2011). There is nothing paranormal about near-death experiences: How neuroscience can explain seeing bright lights, meeting the dead, or being convinced you are one of them. *Trends in Cognitive Sciences*, 15(10), 447–449. (https://doi.org/10.1016/j.tics.2011.07.010)
 
-10. Greyson, B. (2000). Near-death experiences. In E. Cardeña, S. J. Lynn, & S. C. Krippner (Eds.), *Varieties of Anomalous Experience: Examining the Scientific Evidence* (pp. 315–352). American Psychological Association. https://doi.org/10.1037/10371-009
+10. Greyson, B. (2000). Near-death experiences. In E. Cardeña, S. J. Lynn, & S. C. Krippner (Eds.), *Varieties of Anomalous Experience: Examining the Scientific Evidence* (pp. 315–352). American Psychological Association. (https://doi.org/10.1037/10371-009)
 
 ---
 
