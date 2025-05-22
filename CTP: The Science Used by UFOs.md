@@ -17,7 +17,7 @@ Such maneuvers defy:
 - **Known energy inputs and outputs**  
 - **Gravitational coupling in General Relativity**
 
-We assert: **UFOs/UAPs (what we refer to as #CTPcraft)** are not just evidence of an advanced technology—but of a **fundamentally different energy science and ontology**, presently *unacknowledged* by all major institutions.
+We assert: **UFOs/UAPs *(what we refer to as #CTPcraft - by name and identified technologies)** are not just evidence of an advanced technology—but of a **fundamentally different energy science and ontology**, presently *unacknowledged* by all major institutions.
 
 ---
 
