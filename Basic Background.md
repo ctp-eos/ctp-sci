@@ -8,15 +8,15 @@ A C-energy Unit is the smallest unit of conscious or C-energy that can think on 
 
 C-energy is invisible from our physical world. In C-Domain there is no time and no distance. Communication in C-domain is instant. Your thought is your instant action. There are no limitations of speed of light in C-domain as it applies to the Einstein’s Theory of Special Relativity.
 
-C-energy creates millions of non-physical and physical realities (including ours) each defined by its own range of C-energy frequencies not visible from another range or reality. Where you are in C-domain does not depend on the distance or physical location or travel.
+C-energy creates millions of non-physical and physical realities *(including ours)* each defined by its own range of C-energy Frequencies not visible from another range or reality. Where you are in C-domain does not depend on the distance or physical location or travel.
 
-Where you are in C-domain depends only on the range of C-energy frequencies you find yourself in and on the specific C-energy Frequency of your destination target in that range.
+Where you are in C-domain depends only on the range of C-energy Frequencies you find yourself *in* and on the specific C-energy Frequency of your destination target - in that range.
 
-Groups of C-energy Units exhibit themselves in a physical world via a separate set of C-energy Units called Translational or T-energy Units which code the thoughts of such C-energy Units into the vibrations of a particular physical world. All atoms in our physical world are created and exist in this manner.
+Groups of C-energy Units exhibit themselves in a physical world via a separate set of C-energy Units called *Translational* or T-energy Units which code the thoughts of such C-energy Units into the vibrations of a particular physical world. All atoms in our physical world are created and exist in this manner.
 
 The constant interaction between C, T and P energies make up what we call the CTP Energy Cycle™. It can explain all current known and unknown science of our physical world. CTP Energy can also explain many spiritual, psychic, UFO, ESP, weather, and other similar phenomena.
 
-For example, the expansion of galaxies in our physical Universe is nothing more than the expansion of C-energy in C-domain as coded by T-energy Units in our physical world. CTP Energy Cycle™ is also the elusive Unified Field Theory that scientists have been trying to formulate unsuccessfully for over 100 years since the formula always required a non-physical energy component to make it work.
+For example, the expansion of galaxies in our physical Universe is nothing more than the expansion of C-energy in C-domain as coded by T-energy Units in our physical world. CTP Energy Cycle™ is also the elusive [Unified Field Theory](https://github.com/ctp-eos/ctp-sci/blob/main/CTP%3A%20Completion%20of%20the%20Unified%20Field%20Theory.md) that scientists have been trying to formulate unsuccessfully for over 100 years since the formula always required a **non-physical energy component** to make it work.
 
 Full understanding of the CTP Energy Cycle™ will one day lead to the development of various CTP Energy Systems.
 
