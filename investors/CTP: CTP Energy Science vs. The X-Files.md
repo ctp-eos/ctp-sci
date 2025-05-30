@@ -1,4 +1,4 @@
-# 🔍 CTP Energy Science vs. The X-Files Franchise: Potential Comparison
+# 🔍 CTP Energy Science vs. The X-Files Franchise: Comparison
 
 ---
 
