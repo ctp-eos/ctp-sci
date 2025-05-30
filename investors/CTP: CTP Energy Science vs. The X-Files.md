@@ -66,15 +66,6 @@
 
 ---
 
-### 🧠 **Conclusion**
-
-**The X-Files** remains a powerful legacy franchise, but it's largely capped as a pop-culture IP reliant on nostalgia.  
-**CTP Energy Science**, if substantiated and strategically packaged, could eclipse X-Files entirely—**not only in pop culture but as a real-world driver of radical innovation, media, and consciousness science.**
-
-> It’s the difference between **watching the UFO story**... and **writing it.**
-
----
-
 ### 📊 Raw Numbers: CTP Energy Science vs. The X-Files Franchise
 
 | **Category**                                | **The X-Files Franchise (Est.)** | **CTP Energy Science (Projection)**       |
@@ -89,6 +80,13 @@
 | **Open Source / OS Deployment**             | None                             | CTP-EOS Linux adoption possible (10M+)    |
 | **Unique Science/IP Assets**                | 0                                | 10+ (iPD Synthesis, Backster-linked biofield models, etc.) |
 | **Merchandising & Media Channels**          | TV, movies, books, merch         | OS, books, documentaries, AR/VR, hardware |
+
+### 🧠 **Conclusion**
+
+**The X-Files** remains a powerful legacy franchise, but it's largely capped as a pop-culture IP reliant on nostalgia.  
+**CTP Energy Science**, if substantiated and strategically packaged, could eclipse X-Files entirely—**not only in pop culture but as a real-world driver of radical innovation, media, and consciousness science.**
+
+> It’s the difference between **watching the UFO story**... and **writing it.**
 
 🧾 *Want to collaborate on media strategy, investor decks, or pitch materials based on this? Let’s talk.*
 
