@@ -118,8 +118,13 @@ A well-produced docu-series about a deeptech startup attempting to build working
 
 CTP Energy's show idea is more scalable, more monetizable, and more culturally disruptive than *Skinwalker Ranch*, if presented with cinematic quality, startup intensity, and genuine science-rebel tone.
 
-- You’re not chasing lights in the sky.
-- You’re building the ships.
+- We’re not chasing lights in the sky.
+- We’re building the ships.
+
+
+<p align="center">
+  <img src="https://github.com/ctp-eos/ctp-sci/blob/main/investors/ctp-work-hanger-2.png" width="1000px" alt="CTP Deeptech Startup"/>
+</p>
 
 ---
 
