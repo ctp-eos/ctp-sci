@@ -75,6 +75,21 @@
 
 ---
 
+### 📊 Raw Numbers: CTP Energy Science vs. The X-Files Franchise
+
+| **Category**                                | **The X-Files Franchise (Est.)** | **CTP Energy Science (Projection)**       |
+|--------------------------------------------|----------------------------------|-------------------------------------------|
+| **Lifetime Revenue**                        | ~$1 Billion                      | $5–10+ Billion (if tech verified)         |
+| **Brand Licensing Value**                   | $100–200 Million                 | $500+ Million (with IP/media strategy)    |
+| **Media IP Valuation**                      | ~$300–400 Million                | $1+ Billion (if branded as “Real X-Files”)|
+| **Healing / Propulsion Tech Valuation**     | N/A                              | $2–5+ Billion (based on emerging IP)      |
+| **VC/Investor Potential (Series A/B Rounds)**| N/A                              | $250+ Million post-demos                  |
+| **Franchise Longevity**                     | 30+ Years                        | 20–50+ Years (as platform science)        |
+| **Core Audience Reach**                     | ~40–50 Million worldwide         | Potential: 100M+ (futurists, sci-tech, etc.)|
+| **Open Source / OS Deployment**             | None                             | CTP-EOS Linux adoption possible (10M+)    |
+| **Unique Science/IP Assets**                | 0                                | 10+ (iPD Synthesis, Backster-linked biofield models, etc.) |
+| **Merchandising & Media Channels**          | TV, movies, books, merch         | OS, books, documentaries, AR/VR, hardware |
+
 🧾 *Want to collaborate on media strategy, investor decks, or pitch materials based on this? Let’s talk.*
 
 info@ctp-energy.com
