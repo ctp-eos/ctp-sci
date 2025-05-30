@@ -70,9 +70,9 @@
 > It’s the difference between **watching the UFO story**... and **writing it.**
 
 ---
+
 🧾 *Want to collaborate on media strategy, investor decks, or pitch materials based on this? Let’s talk.*
 
-#CTPEnergy #ConsciousnessScience #UFO #Startups #SciFi #FrontierScience #MediaInnovation #SpaceTech #ARcliner #XFiles
-```
+info@ctp-energy.com
 
-Let me know if you’d like this saved to a downloadable `.md` file or converted into `.pdf`, `.docx`, or a formatted LinkedIn post preview.
+#CTPEnergy #ConsciousnessScience #UFO #Startups #SciFi #FrontierScience #MediaInnovation #SpaceTech #ARcliner #XFiles
