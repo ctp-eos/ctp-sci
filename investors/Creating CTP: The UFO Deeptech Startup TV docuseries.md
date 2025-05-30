@@ -62,6 +62,12 @@ As of **May 2025**, CTP Energy is in the **early stages of development**, focusi
 
 ---
 
+<p align="center">
+  <img src="https://github.com/ctp-eos/ctp-sci/raw/main/investors/images/CTP-the-deeptech-startup-behind-the-phenomena.png" width="1000px" alt="CTP Deeptech Startup"/>
+</p>
+
+---
+
 # CTP TV Show Promo Script
 
 **[Epic cinematic music builds]**
