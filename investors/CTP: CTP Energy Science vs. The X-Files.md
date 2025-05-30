@@ -81,6 +81,8 @@
 | **Unique Science/IP Assets**                | 0                                | 10+ (iPD Synthesis, Backster-linked biofield models, etc.) |
 | **Merchandising & Media Channels**          | TV, movies, books, merch         | OS, books, documentaries, AR/VR, hardware |
 
+---
+
 ### 🧠 **Conclusion**
 
 **The X-Files** remains a powerful legacy franchise, but it's largely capped as a pop-culture IP reliant on nostalgia.  
