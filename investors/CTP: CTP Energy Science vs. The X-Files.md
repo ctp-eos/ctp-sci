@@ -2,6 +2,9 @@
 
 ---
 
+<img src="https://github.com/ctp-eos/ctp-sci/blob/main/images/x-files-intro-ufo.png?raw=true" alt="X-Files Intro UFO" width="800"/>
+
+
 ### 📊 **Overview Table**
 
 | Category                          | **CTP Energy Science**                                                                        | **The X-Files Franchise**                                                                 |
