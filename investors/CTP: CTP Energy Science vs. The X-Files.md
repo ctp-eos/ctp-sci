@@ -6,6 +6,8 @@
   <img src="https://github.com/ctp-eos/ctp-sci/blob/main/images/x-files-intro-ufo.png?raw=true" alt="X-Files Intro UFO" width="1000"/>
 </div>
 
+---
+
 ### 📊 **Overview Table**
 
 | Category                          | **CTP Energy Science**                                                                        | **The X-Files Franchise**                                                                 |
@@ -89,6 +91,8 @@
 **CTP Energy Science**, if substantiated and strategically packaged, could eclipse X-Files entirely—**not only in pop culture but as a real-world driver of radical innovation, media, and consciousness science.**
 
 > It’s the difference between **watching the UFO story**... and **writing it.**
+
+--- 
 
 🧾 *Want to collaborate on media strategy, investor decks, or pitch materials based on this? Let’s talk.*
 
