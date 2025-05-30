@@ -61,3 +61,42 @@ As of **May 2025**, CTP Energy is in the **early stages of development**, focusi
 - 📸 [Resofactor on Instagram](https://www.instagram.com/resofactor/p/DFmIQwxRAp6/?utm_source=chatgpt.com)
 
 ---
+
+# CTP TV Show Promo Script
+
+**[Epic cinematic music builds]**
+
+**Narrator (deep, compelling voice):**
+
+> *“Beyond the known... beyond science as we know it...”*  
+> *“A revolution is unfolding — the birth of a new energy paradigm.”*
+
+**[Cut to breathtaking visuals: glowing futuristic spacecraft soaring silently above Earth, mysterious energy fields shimmering, scientific symbols morphing into UFO silhouettes.]**
+
+> *“CTP Energy is rewriting the laws of physics.”*  
+> *“Unlocking secrets that could change humanity’s destiny forever.”*
+
+**[Quick flashes of scientists working in high-tech labs, engineers testing prototypes, deep space exploration, and eerie unexplained phenomena.]**
+
+> *“Gravitic propulsion... Faster-than-light travel... A future once only dreamed of...”*
+
+**[Cut to close-up of a visionary leader, gazing into the horizon.]**
+
+> *“This is not science fiction. This is CTP.”*
+
+**[Title Reveal: "CTP: The UFO Deeptech Startup” — bold, glowing letters with a high-tech visual effect.]**
+
+**Narrator:**
+
+> *“Join the journey into the unknown.”*  
+> *“Discover the science behind the mystery.”*  
+> *“The future of space. The future of humanity.”*
+
+**[Final scene: The silhouette of a sleek, alien-inspired spacecraft accelerating into the stars.]**
+
+> *“CTP: The UFO Deeptech Startup — coming soon.”*
+
+**[Music swells and fades]**
+
+---
+
