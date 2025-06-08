@@ -1,4 +1,4 @@
-# CT∞>PE=mc²  
+# CT∞>ΔPE=mc²  
 A CTP Conscious Translational Physics Grand Unification Principle
 ## Building on Einstein's incomplete works.
 
@@ -13,7 +13,7 @@ Einstein's *E=mc²* describes the energy content of mass but does not account fo
 
 ### I. Introduction
 
-While modern physics describes energy with precision, persistent mysteries—such as dark matter and UAP propulsion—remain unresolved. **CT∞>PE=mc²**, proposed within **CTP Conscious Translational Physics**, recontextualizes Einstein’s work by introducing a layered model in which physical energy is a translated byproduct of higher order/higher domain non-physical energy fields.
+While modern physics describes energy with precision, persistent mysteries—such as dark matter and UAP propulsion—remain unresolved. **CT∞>ΔPE=mc²**, proposed within **CTP Conscious Translational Physics**, recontextualizes Einstein’s work by introducing a layered model in which physical energy is a translated byproduct of higher order/higher domain non-physical energy fields.
 
 ---
 
@@ -32,11 +32,12 @@ Einstein's equation remains valid for material systems but ignores these deeper 
 
 This new formulation posits:
 
-**CT∞>PE=mc²**
+**CT∞>ΔPE=mc²**
 
 - **CT∞**: Infinite potential energy in the non-physical C-domain   
 -- *(C-energy times T-energy in Nth additional C-energy Frequency Ranges (CeFR) of C-domain/reality-bandwidths)*  
--- is infinitely greater than...     
+-- is infinitely greater than...
+-- Δ is the narrowing of C-energy via T-energy into...     
 - **PE**: Physical energy as defined by Einstein
   - *(as evidence(d) in/by disproportional distribution of observable matter in the physical universe)*  
   - *(CTP Model also accounts for matter/anti-matter (a)symmetry issues still yet unresolved by traditional physics)*
@@ -73,7 +74,7 @@ Conventional engines require proportionally massive energy sources. Yet, numerou
 - [**Tiny CTP craft producing vast energetic distortions**](https://www.youtube.com/watch?v=HlYwktOj75A)  
 - **Field-based movement without visible thrust** [3].
 
-Using **CT∞>PE=mc²**:
+Using **CT∞>ΔPE=mc²**:
 
 - These CTP craft access **C/T-energy reservoirs within the C-domain**  
 - Their propulsion derives from **T-energy-mediated retranslation**, not chemical or nuclear reactions  
@@ -93,7 +94,7 @@ This aligns with recovered UAP research indicating exotic materials and non-loca
 
 'CTP' accounts for the distribution framework.
 
-The **CT∞>PE=mc²** model reinterprets these:
+The **CT∞>ΔPE=mc²** model reinterprets these:
 
 - **Dark Energy = C-energy**: The undetected non-physical conscious substrate  
 - **Dark Matter = T-energy**: Translational carriers with structural influence
@@ -123,7 +124,7 @@ Phenomena such as:
 
 ### VIII. Toward a New Physics
 
-**CT∞>PE=mc²** suggests:
+**CT∞>ΔPE=mc²** suggests:
 
 - Energy anomalies are explainable through higher-order energetic strata  
 - Gravity is programmable, not geometric  
@@ -136,7 +137,7 @@ These propositions are not metaphysical speculations but **working hypotheses** 
 
 ### Conclusion
 
-Einstein’s equation describes the visible. **CT∞>PE=mc²** reveals the **invisible order**: a vast energetic domain, coded in consciousness and translated into spacetime via T-energy. The physical universe is not primary—it is a **shadow cast by a deeper, intelligent continuum**.
+Einstein’s equation describes the visible. **CT∞>ΔPE=mc²** reveals the **invisible order**: a vast energetic domain, coded in consciousness and translated into spacetime via T-energy. The physical universe is not primary—it is a **shadow cast by a deeper, intelligent continuum**.
 
 ---
 
